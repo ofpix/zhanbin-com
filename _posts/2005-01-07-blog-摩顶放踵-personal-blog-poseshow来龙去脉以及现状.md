@@ -1,0 +1,220 @@
+---
+title: "■ 摩顶放踵 ■ personal blog » poseshow来龙去脉以及现状"
+date: 2005-01-07 12:00:00 +0800
+categories: [blog]
+---
+
+■ 摩顶放踵 ■ personal blog » poseshow来龙去脉以及现状
+	
+	
+	
+	
+	
+		
+
+■ [http://zhanbin.com](詹膑·homepage) ■ [http://blog.zhanbin.com](摩顶放踵·personal blog) ■ [http://media.zhanbin.com](广泛传播·media blog) ■ [http://edu.zhanbin.com](亦言亦行·edu blog) ■
+
+	[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
+ 
+
+	
+		
+			
+			
+		
+	
+
+	
+		[http://blog.zhanbin.com](首页)
+		[http://blog.zhanbin.com/index.php/guestbook/](留言本)
+[http://blog.zhanbin.com/index.php/archives/](Archives)
+	
+
+	
+	
+
+		[http://blog.zhanbin.com/index.php/44.html](poseshow来龙去脉以及现状)
+
+		
+		   		六月 7th, 2005
+   		
+   		   		
+
+			[http://poseshow.com](poseshow.com)这个域名是我今年春节申请的，快半年了，是想做点东西玩儿——现在有些子域名在使用，就是我想尝试的东西，比如开放教程、教学辅助的bbs，用于团队协作推动研究型学习的blog社群等，都是过程中的东西。poseshow.com变成现在这样的“独乐乐不如众乐乐”之前只有过一个十分简单的首页，上面只有一些关键词和项目列表，其中关键词包括：实验、游戏、未完成、不确定等等，意思也很明确，是用来容纳一些小的项目，不需要它有个最后结果，而保持一种尝试的状态，“pose show”本身也有这个意思——我们的生活和工作需要非常多的秩序，需要严谨，需要结果，而网络则提供一种尝试的可能性，实验是创新的源泉，也是基于这个意义，我很喜欢google将那些实验型的产品放入他们所谓的labs里，而且不断有beta版新应用推出。
+
+	我有将Poseshow变成一个实验平台的想法，它支持我的实验，也支持更多人的，这种实验可以是一个网络软件工具，或者类似[http://www.smilinglibrary.org/sl_index.asp](微笑图书室)、[http://www.1kg.cn/](多背一公斤)这样在网络上发展开来的公益项目，还有很多别的，可大可小，不追求结果。
+
+	其实网络很多时候是很好的工具，很好易用易得的媒体平台（放大器），廉价……还有很多特点，因此它很适合用于尝试一些东西。所以，poseshow其实是很明确希望朝着这个方向发展，然后将这个网络变成“[http://edu.zhanbin.com/index.php/17.html](两小时＋咖啡豆 与 我曾经的idea)”这样的一个实验场所，然后提供很少的物质支持比如网络空间，来推动一些项目。但是就我的经验，做这样的项目如果没有流量，没有人气，没有团队，基本上是空中楼阁。我们尝试过程中，需要一些“满足感”来支持它，当缺乏物质激励机制时，必须提供一些“软激励机制”，比如很多人来访问，称赞它，加入它，或者团队一起来作，得到他人的支持等等。
+
+	所以，poseshow应该有一个基本的流量保证，然后再来支持这些项目，以“玩”的心态发展。这样，做成一个boingboing那样的收藏和介绍网络上好玩东西的站点非常符合poseshow的需要，一方面，它提供很多新项目的灵感，因为会介绍很多网络上好玩应用；第二它吸引一些“贪玩”的人——他们可能会自己做些什么实验项目；第三它提供很好的流量即软性的激励机制。如果能有一些人来玩儿，那么它本身就是一个实验型的产品了。
+
+	poseshow.com现在的首页是三栏结构，希望，当人多以后，第三栏就变成了各种实验的导航栏，提供项目最新通告，让它更加有趣味。
+
+	上面想说一下，poseshow.com不是[http://www.ideashacker.com/archives/000146.html](单纯的抄袭boingboing)，而是有别的意图。
+
+	现在Poseshow的状态满好的，除了最近几天无暇顾及。为什么说状态好呢？因为它目前保持一个很开放、很轻松的状态，作者有好几个是大学生，我们的群很热闹，一直都有很多人加入，最近因为qq群的问题限制人数只有20个，有一些朋友没法加入，很抱歉，这也影响了它的发展。除此，群里大家随意聊天，提供一些新的好玩的东西，分享，提供一个社群的感觉，为poseshow.com的发展提供了比较好的基础保障，尤其群的人数以后能发展到100人左右，估计稿源不会太发愁。
+
+	而写作，保持一个大家随意的状况，没有什么约束，只是我们会鼓励作者加入评论，让它显得个性化和人性化，而不是一个简单的信息集成和导航——那样其实不符合blog的本意。这个站没有任何盈利的想法，因为在中国做一个boingboing来获取广告很不现实，远不如搞下载或者bbs论坛来得实在……所以，这个站点本身是一个实验项目，它的所有权归全体作者共有，甚至群里的所有旁观者都有很大的意见权利，这样，它才可能符合我理想中的状态。即便如此，对于它的可持续发展，我仍然是有担心的……
+
+	以上是poseshow.com的想法，它本身应该就是好玩的东西，应该是“独乐乐不如众乐乐”，倡导分享的精神——这是我觉得更可能保证它发展的动力。
+
+	让互联网好玩起来，有更多的分享。
+
+	原本写了一篇比较好的文字，结果当机了，只好快速记录下上面的想法，好像有点像宣传的文章:( 这篇文章主要是因为poseshow.com会有大的变革，比如和[http://postshow.net](postshow.net即boingboing in China)合并，比如开始考虑推出实验型项目等，记录下来，作为一个阶段的文字，同时与poseshow所有的朋友分享。
+
+		Entry Filed under: [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)
+
+   
+
+	4 Comments [#commentform](Add your own)
+
+	
+
+	
+	
+	1.
+
+	
+	[http://blog.zhanbin.com/index.php/45.html](■ 摩顶放踵 ■ pers&hellip)  |  六月 7th, 2005 at 1:07 am
+
+			[…] 发表评论，留下您的意见  [收藏此页365key]
+
+	       		poseshow来龙去脉以及现状是一个铺垫，是为了说poseshow和boingboing in China即将合 […]
+
+		
+
+	
+
+	
+	2.
+
+	
+	[http://www.poseshow.com/index.php/2005/06/07/145.html](Pose Show：独乐不如&hellip)  |  六月 7th, 2005 at 2:40 am
+
+			[…] 经运作2个星期了吧……对这个站点有些什么想法？呵呵，你可以看看poseshow来龙去脉以及现状了解更多关于本站的想法，并留下你的设想和建议。 […]
+
+		
+
+	
+
+	
+	3.
+
+	
+	[http://fei.blogs.ie/2005/06/08/6/](SNS/KM研究  :: BoingBoi&hellip)  |  六月 8th, 2005 at 10:17 am
+
+			[…] 参考poseshow创立者horse的两篇post：  	 poseshow与boingboing in China即将合并poseshow来龙去脉以及现状  	而BoingBoing中文版是我今天才注意到的站点，相比前 […]
+
+		
+
+	
+
+	
+	4.
+
+	
+	[http://fei.blogs.ie/2005/06/08/boingboingcn/](SNS/KM研究  :: BoingBoi&hellip)  |  六月 8th, 2005 at 10:22 am
+
+			[…] 参考poseshow创立者horse的两篇post：  	 poseshow与boingboing in China即将合并poseshow来龙去脉以及现状  	而BoingBoing中文版是我今天才注意到的站点，相比前 […]
+
+		
+
+	
+
+	Leave a Comment
+
+	
+	
+		
+
+	
+			Name  Required
+
+			Email  Required, hidden
+
+			Url 
+
+			Comment 
+
+			
+			
+
+	  	
+		
+
+	Some HTML allowed:
+<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
+
+	[http://blog.zhanbin.com/index.php/44.html/trackback/](Trackback this post)  |  Subscribe to the comments via RSS Feed)
+
+ 
+ 
+
+		
+		
+
+[http://www.zhanbin.com/index.php/first/](第一次来本站？)
+
+信息台
+[http://ofblog.com/wzp](
+最佳财经观察Blog)
+
+[http://ofblog.com/wzp/](王正鹏·财经夜谭)
+
+[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
+
+订阅 [http://feeds.feedburner.com/zhanbin]()
+
+[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
+
+[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin](Newsgator订阅)
+
+[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
+
+[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
+
+[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
+Rojo订阅)
+
+[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
+
+[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
+
+[http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
+[http://feeds.feedburner.com/zhanbin]()
+
+			
+			
+
+广告:
+
+			
+
+		
+		
+
+	Most Recent Posts
+
+	
+	[http://blog.zhanbin.com/index.php/84.html](精彩！精彩！朝阳市网站的精彩言战)
+[http://blog.zhanbin.com/index.php/83.html](表姐表姐夫“逃生”，传销各地履禁不止)
+[http://blog.zhanbin.com/index.php/82.html](汕头街头的三多or更多)
+[http://blog.zhanbin.com/index.php/81.html](拜地主爷的潮汕风俗)
+[http://blog.zhanbin.com/index.php/80.html](安全套、书店和鞋店)
+[http://blog.zhanbin.com/index.php/78.html](买游击队的水果要小心)
+[http://blog.zhanbin.com/index.php/77.html](推荐：选择个税起征点，贵在藏富于民)
+[http://blog.zhanbin.com/index.php/76.html](《娱乐至上：体验经济时代的商业秀》)
+[http://blog.zhanbin.com/index.php/75.html](Madagascar 马达加斯加 简评)
+[http://blog.zhanbin.com/index.php/74.html](一个与“营销”有关的书单)
+	
+
+[http://media.zhanbin.com](■ 广泛传播 ■ media blog)Feedburner强化对Yahoo! Podcasts的支持)Audacity没有保存.aup怎办？)Yahoo!新搜索对Rss的强化支持与Yahoo新推Podcasts搜索)Blogspot解封，Weblogs Inc.推出两个简体中文blog)Yahoo!释出4项新服务)Rss调查进行时……)NewsGator收购NetNewsWire)ChinaBBS新招：利用Rss＋网摘打造网络杂志)博阅释出新版，Feedsky宣布与两大BSP合作)Google AdSense for Feeds 与 Rss 广告)
+[http://edu.zhanbin.com](■ 亦言亦行 ■ edu blog)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)opensource、e-learning和open education)
+
+ 
+
+ 
+
+	© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
+
+	Design based on [http://www.kingcosmonaut.de/blix/](Blix) Theme by [http://z2studio.com](Z2studio). Powered by [http://www.wordpress.org/](WordPress) . [http://blog.zhanbin.com/wp-login.php](登录)
