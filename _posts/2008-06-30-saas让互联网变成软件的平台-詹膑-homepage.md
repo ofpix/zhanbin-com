@@ -5,10 +5,7 @@ categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/469"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com:80/blog/469.html","20090201171622","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1233508582");
+
 SaaS让互联网变成软件的平台 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇花园咖啡馆

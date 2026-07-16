@@ -5,10 +5,7 @@ categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/409"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/409.html","20080707033746","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1215401866");
+
 9月29日，ofblog学习沙龙：网人 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇社区

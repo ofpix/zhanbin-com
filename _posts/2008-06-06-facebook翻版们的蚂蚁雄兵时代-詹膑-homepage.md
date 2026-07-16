@@ -5,10 +5,7 @@ categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/467"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/467.html","20081010154321","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1223653401");
+
 Facebook翻版们的蚂蚁雄兵时代 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇社区 | 不倒猫

@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/410"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com:80/blog/410.html#comment-31652","20071015051735","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1192425455");
+
 ■ 詹膑 ■ Homepage » 国际聋人节，DeafChina.com正式上线
 ■ 詹膑 ■ Homepage摩顶放踵，养浩然气
 首页

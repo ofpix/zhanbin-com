@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_23"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("http://web.archive.org/web");
-__wm.wombat("http://blog.zhanbin.com:80/index.php/23.html","20050829043628","http://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1125290188");
+
 ■ 摩顶放踵 ■ personal blog » 校园
 ■ 摩顶放踵 ■ personal blog
 首页    !个人    传播    教育    联系

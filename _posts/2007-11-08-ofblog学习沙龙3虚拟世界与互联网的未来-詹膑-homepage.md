@@ -5,10 +5,7 @@ categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/421"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/421.html","20080828011157","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1219885917");
+
 ofblog学习沙龙3：虚拟世界与互联网的未来 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇社区 | 不倒猫

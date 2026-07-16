@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_28"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("http://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/index.php/28.html","20071025140901","http://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1193321341");
+
 ■ 詹膑 ■ Homepage » A Magazine：“建造新世界”
 ■ 詹膑 ■ Homepage摩顶放踵，养浩然气
 首页

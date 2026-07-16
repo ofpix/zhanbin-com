@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_95"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("http://web.archive.org/web");
-__wm.wombat("http://blog.zhanbin.com:80/index.php/95.html","20051124062501","http://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1132813501");
+
 ■ 摩顶放踵 ■ personal blog » 请为环保记者刘鉴强投票
 ■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
 ■ 摩顶放踵 ■ personal blog

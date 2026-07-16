@@ -5,10 +5,7 @@ categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/406"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/406.html","20081010154345","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1223653425");
+
 ofblog沙龙小记与我们想要做什么 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇社区 | 不倒猫

@@ -5,10 +5,7 @@ categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/423"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com/blog/423.html","20080707034034","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1215402034");
+
 关于ofblog沙龙与ofblog新媒体BT沙龙 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇社区

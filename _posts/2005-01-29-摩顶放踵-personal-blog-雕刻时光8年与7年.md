@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_100"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("http://web.archive.org/web");
-__wm.wombat("http://blog.zhanbin.com:80/index.php/100.html","20051202011843","http://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1133486323");
+
 ■ 摩顶放踵 ■ personal blog » 雕刻时光：8年与7年
 ■ 摩顶放踵 ■ personal blog
 首页

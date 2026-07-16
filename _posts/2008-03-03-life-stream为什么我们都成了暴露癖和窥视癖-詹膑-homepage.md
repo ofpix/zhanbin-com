@@ -5,10 +5,7 @@ categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/454"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("https://web.archive.org/web");
-__wm.wombat("http://zhanbin.com:80/blog/454.html","20090207004001","https://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1233967201");
+
 Life Stream：为什么我们都成了暴露癖和窥视癖 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
 Text：奇遇花园咖啡馆

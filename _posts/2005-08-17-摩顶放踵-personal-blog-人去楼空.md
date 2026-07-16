@@ -5,10 +5,7 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_35"
 ---
 
-window.RufflePlayer=window.RufflePlayer||{};window.RufflePlayer.config={"autoplay":"on","unmuteOverlay":"hidden","showSwfDownload":true};
-__wm.init("http://web.archive.org/web");
-__wm.wombat("http://blog.zhanbin.com:80/index.php/35.html","20050817061032","http://web.archive.org/","web","https://web-static.archive.org/_static/",
-"1124259032");
+
 ■ 摩顶放踵 ■ personal blog » 人去楼空
 ■ 摩顶放踵 ■ personal blog
 首页    !个人    传播    教育    联系
