@@ -38,7 +38,6 @@ Entry Filed under:
 
 1.
 
-
  |  六月 7th, 2005 at 1:07 am
 
 […] 发表评论，留下您的意见 [收藏此页365key]
@@ -47,20 +46,17 @@ poseshow来龙去脉以及现状是一个铺垫，是为了说poseshow和boingbo
 
 2.
 
-
  |  六月 7th, 2005 at 2:40 am
 
 […] 经运作2个星期了吧……对这个站点有些什么想法？呵呵，你可以看看poseshow来龙去脉以及现状了解更多关于本站的想法，并留下你的设想和建议。 […]
 
 3.
 
-
  |  六月 8th, 2005 at 10:17 am
 
 […] 参考poseshow创立者horse的两篇post： poseshow与boingboing in China即将合并poseshow来龙去脉以及现状 而BoingBoing中文版是我今天才注意到的站点，相比前 […]
 
 4.
-
 
  |  六月 8th, 2005 at 10:22 am
 
@@ -78,21 +74,15 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 信息台
-
-订阅 [)
 
 [)
 
 广告:
 
 Most Recent Posts
-
-Feedburner强化对Yahoo! Podcasts的支持)Audacity没有保存.aup怎办？)Yahoo!新搜索对Rss的强化支持与Yahoo新推Podcasts搜索)Blogspot解封，Weblogs Inc.推出两个简体中文blog)Yahoo!释出4项新服务)Rss调查进行时……)NewsGator收购NetNewsWire)ChinaBBS新招：利用Rss＋网摘打造网络杂志)博阅释出新版，Feedsky宣布与两大BSP合作)Google AdSense for Feeds 与 Rss 广告)
-为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)opensource、e-learning和open education)
 
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 

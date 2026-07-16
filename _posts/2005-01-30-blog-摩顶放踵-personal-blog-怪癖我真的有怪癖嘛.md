@@ -28,7 +28,6 @@ Entry Filed under:
 
 1.
 
-
  |  八月 30th, 2005 at 6:17 pm
 
 怪僻接力
@@ -39,20 +38,17 @@ Entry Filed under:
 
 2.
 
-
 renyang)  |  九月 4th, 2005 at 12:01 am
 
 俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
 
 3.
 
-
 renyang)  |  九月 4th, 2005 at 12:02 am
 
 俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
 
 4.
-
 
 花小卷  |  九月 6th, 2005 at 11:31 am
 
@@ -62,13 +58,11 @@ renyang)  |  九月 4th, 2005 at 12:02 am
 
 5.
 
-
 花小卷  |  九月 6th, 2005 at 11:32 am
 
 更正：赌：P
 
 6.
-
 
 horse)  |  九月 6th, 2005 at 12:10 pm
 
@@ -86,14 +80,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

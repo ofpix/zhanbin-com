@@ -22,7 +22,6 @@ Entry Filed under:
 
 1.
 
-
  |  十一月 4th, 2005 at 9:42 am
 
 即将召开的“中文网志年会”
@@ -30,7 +29,6 @@ Entry Filed under:
 2005中文网志年会将于明日在上海召开，因个人原因，我不能去现场参加这个盛会，非常遗憾！希望与会的各位blogger们能多多发表会议的情况，让我们无法参会的blogger能感受到会议的热烈气氛以
 
 2.
-
 
  |  十一月 4th, 2005 at 10:03 am
 
@@ -50,14 +48,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

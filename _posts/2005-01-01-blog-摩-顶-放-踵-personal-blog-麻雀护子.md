@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩 顶 放 踵 ■ personal blog » 麻雀护子
 
-            
-
 老爸刚讲了一个故事，说，在老家，小麻雀撞我们家阳台玻璃，开了阳台就飞了进来，于是抓了玩儿，用小绳系着放在阳台。结果老麻雀呼朋唤友叫了十几只麻雀来，围着阳台那里。人一来就拼命地叫嚷，叫了一两个小时，一直叫到我爸放了那只小麻雀……一放，两只老麻雀就一左一右护着小麻雀飞走。
 
 by horse in on @ 7:21 pm | [)
@@ -15,7 +13,6 @@ by horse in on @ 7:21 pm | [)
 随机显示文章
 
 1 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -26,9 +23,6 @@ by horse in on @ 7:21 pm | [)
 删掉10到15字，去掉连词，绝对是好的散文的开头。相信你，多积累，生活多些变化，写东西会有味道出来
 
 By taras) on 04.14.05 9:00 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -109,7 +103,6 @@ recent comments
 taras: Ricci: yyyccc: horse: horse: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

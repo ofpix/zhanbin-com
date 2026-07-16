@@ -4,18 +4,10 @@ date: 2005-01-13 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » 门户、个人门户
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 门户、个人门户
-
 
 二月 13th, 2005
 
@@ -35,13 +27,11 @@ categories: [media]
 
 至于普通用户则可以选择，是去依赖大型门户建设自己的互联网家园，还是利用blog这样的工具建设自己的个人门户。
 
-
 Entry Filed under: 随便说说
 
 4 Comments Add your own
 
 1.
-
 
 ■ 广 泛 传 播 ■ m&hellip  |  四月 2nd, 2005 at 8:26 am
 
@@ -51,20 +41,17 @@ by horse in 随便说说 on 04.02.05 @ 8:25 am | [...]
 
 2.
 
-
 BlueLeo  |  四月 2nd, 2005 at 2:44 pm
 
 未来应该是中心化和个性化相辅相成。
 
 3.
 
-
 horse  |  四月 2nd, 2005 at 5:08 pm
 
 个人化(去中心化)和聚合也许更准确
 
 4.
-
 
 ■ 广 泛 传 播 ■ m&hellip  |  五月 1st, 2005 at 3:15 pm
 
@@ -82,9 +69,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -94,28 +78,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -125,9 +106,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

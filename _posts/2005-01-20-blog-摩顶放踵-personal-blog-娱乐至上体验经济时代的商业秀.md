@@ -24,13 +24,11 @@ Entry Filed under:
 
 1.
 
-
 babyfish)  |  九月 23rd, 2005 at 10:45 am
 
 现在的POST SHOW你还管么？？？？
 
 2.
-
 
 horse)  |  九月 23rd, 2005 at 12:49 pm
 
@@ -38,20 +36,17 @@ horse)  |  九月 23rd, 2005 at 12:49 pm
 
 3.
 
-
 horse)  |  九月 23rd, 2005 at 12:49 pm
 
 管啊
 
 4.
 
-
 babyfish)  |  九月 23rd, 2005 at 3:17 pm
 
 那你看一下我在那里今天的留言行不行啊。能不能把密码还给我的~
 
 5.
-
 
 黄靖昀)  |  九月 25th, 2005 at 6:29 pm
 
@@ -61,13 +56,11 @@ babyfish)  |  九月 23rd, 2005 at 3:17 pm
 
 6.
 
-
 horse)  |  九月 27th, 2005 at 5:46 pm
 
 多谢推荐。书店翻看了一番，两三个章节颇有兴趣，其它则一般，主要价格也不便宜……
 
 7.
-
 
 黄靖昀)  |  九月 28th, 2005 at 10:36 am
 
@@ -97,20 +90,17 @@ logo:
 
 8.
 
-
 horse)  |  九月 29th, 2005 at 10:11 pm
 
 汗！so抬举…
 
 9.
 
-
 WOLFay)  |  十月 20th, 2005 at 10:06 am
 
 麻烦先告诉我： 这个是真书吗？
 
 10.
-
 
 horse)  |  十月 20th, 2005 at 10:07 am
 
@@ -128,14 +118,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

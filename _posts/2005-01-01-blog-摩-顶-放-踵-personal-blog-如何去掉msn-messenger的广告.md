@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩 顶 放 踵 ■ personal blog » 如何去掉msn messenger的广告
 
-            
-
 是最小最好而且只做一件事情的小软件，它近乎完美地帮助你去掉任何版本的msn messager的广告。
 
 by horse in on @ 4:10 pm | [)
@@ -16,13 +14,9 @@ by horse in on @ 4:10 pm | [)
 
 无留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -99,7 +93,6 @@ recent comments
 jay: Jay’s blog » 抵制日货: jane: 排队等候，我还有希望吗？: Runda Liu: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

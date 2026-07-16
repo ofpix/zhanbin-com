@@ -40,14 +40,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

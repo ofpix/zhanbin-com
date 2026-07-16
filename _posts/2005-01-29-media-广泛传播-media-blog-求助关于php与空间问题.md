@@ -4,43 +4,26 @@ date: 2005-01-29 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » 求助，关于php与空间问题
-
-■ 广泛传播 ■ media blog
-
-首页
-
 欢迎在文后发表评论
 
 重要页:
 
 广泛传播日报
-文章档案
+文章
 
-订阅 
+Bloglines
 
-Bloglines订阅
-Newsgator订阅
+My Msn
 
-My Msn订阅
-My Yahoo订阅
+Rojo
 
-Rojo订阅
-gougou订阅
-周博通订阅
-
-博阅订阅
-
-
-分类：
+博阅
 
 互联网 (44)
 
 杂志 (15)
 
 随便说说 (54)
-
-存档文章：
 
 十月 2005 (20)
 九月 2005 (15)
@@ -85,7 +68,6 @@ WebLeOn
 求助，关于php与空间问题
 九月 29, 2005 on 7:16 pm | In 随便说说 | 
 
-
 zhanbin.com用的神话网络的空间，一直非常顺利。所以为了blogbeta.com和edubeta.com又购买了一个神话的空间问题多多……前几天又出问题，而且我无法解决。
 
 因为bbs.edubeta.com可以登陆，所以空间商说不是他们的问题。但是用wordpress建的几个站包括blogbeta.com，web.edubeta.com，chn.blogbeta.com等都无法登陆。数据库检查了数据都在并且如果数据库出错，会出现wordpress的出错页面。二级域名和域名都没有问题，比如web.edubeta.com的某个.rar文件仍然可以下载。所以我猜测可能是Php支持的问题。但是确实是前一天晚上还好好的，第二天就无法使用了，而空间商说没有调整或者升级php什么的。我重新安装一个新的wordpress则无法安装至上。但bbs.edubeta.com也是用的php＋mysql。
@@ -97,15 +79,12 @@ zhanbin.com用的神话网络的空间，一直非常顺利。所以为了blogbe
 此外，最近太忙，耽误了一些事情，请关心blogbeta和edubeta的朋友原谅
 
 随机推荐文章：
-mimiqiao的"blog新闻链播"群组blog计划博阅释出新版，Feedsky宣布与两大BSP合作Re-Magazine：一个人的极端选择与一本杂志的极端态度ESOPUS：一个人的杂志Google AdSense for Feeds 与 Rss 广告
+mimiqiao的"blog新闻链播"群组blog计划博阅释出新版，
 
 6 留言 
 »
 
-订阅此文章的留言RSS。 
-
 TrackBack URI
-
 
 乱码应该是导入导出的时候出的问题, 可以参考一下这里:
 

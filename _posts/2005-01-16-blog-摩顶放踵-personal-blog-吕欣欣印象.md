@@ -22,7 +22,7 @@ categories: [blog]
 
 5、他有4台游戏机，包括ps2和xbox，纨绔。“体验”（汗…）了一下ps2。玩游戏真好。
 
-6、Feedsky马上要出台了…海龟很快加盟…
+6、
 
 7、色情狂……
 
@@ -36,7 +36,6 @@ Entry Filed under:
 
 1.
 
-
 biantaishabi)  |  六月 17th, 2005 at 1:11 am
 
 家乡菜。com我前几天还在地大吃过
@@ -44,7 +43,6 @@ biantaishabi)  |  六月 17th, 2005 at 1:11 am
 多多打篮球锻炼身体就好了，哈哈
 
 2.
-
 
 xiaobo)  |  六月 17th, 2005 at 4:31 am
 
@@ -54,13 +52,11 @@ xiaobo)  |  六月 17th, 2005 at 4:31 am
 
 3.
 
-
 shunz)  |  六月 17th, 2005 at 8:22 am
 
 zhanbin冒泡了哈。。。
 
 4.
-
 
 x5)  |  六月 17th, 2005 at 9:32 pm
 
@@ -68,13 +64,11 @@ x5)  |  六月 17th, 2005 at 9:32 pm
 
 5.
 
-
 twelve)  |  六月 17th, 2005 at 10:25 pm
 
 想起詹老师写的keso的八卦。
 
 6.
-
 
  |  六月 18th, 2005 at 4:56 am
 
@@ -84,13 +78,11 @@ twelve)  |  六月 17th, 2005 at 10:25 pm
 
 7.
 
-
 biantaishabi)  |  六月 18th, 2005 at 5:02 am
 
 我翻译的steve jobs的演讲啊
 
 8.
-
 
 guoshuang  |  六月 19th, 2005 at 8:39 pm
 
@@ -98,13 +90,11 @@ guoshuang  |  六月 19th, 2005 at 8:39 pm
 
 9.
 
-
 JoyChan)  |  六月 20th, 2005 at 2:09 am
 
 退学的都来报到了; - )
 
 10.
-
 
 MeetRain  |  六月 20th, 2005 at 10:09 pm
 
@@ -114,20 +104,17 @@ MeetRain  |  六月 20th, 2005 at 10:09 pm
 
 11.
 
-
 biantaishabi)  |  六月 20th, 2005 at 11:55 pm
 
 这个出墙率基本上是正确的…
 
 12.
 
-
 钟一民  |  七月 1st, 2005 at 11:18 pm
 
 feedsky能活过今年吧.
 
 13.
-
 
  |  七月 4th, 2005 at 4:13 pm
 
@@ -149,14 +136,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

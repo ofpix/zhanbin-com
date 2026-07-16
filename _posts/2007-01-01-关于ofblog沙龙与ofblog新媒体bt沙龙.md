@@ -19,8 +19,7 @@ ofblog新媒体BT沙龙会继续深入，我们从“概念”开始，然后再
 多谢支持:) 此致！敬礼！
 November 13, 2007 | Filed Under [个人文集]( "View all posts in 个人文集"), [传媒]( "View all posts in 传媒")
 Tags: [ofblog](), [ofblog沙龙]() 
-# Comments
-4 Responses to “关于ofblog沙龙与ofblog新媒体BT沙龙”
+#  “关于ofblog沙龙与ofblog新媒体BT沙龙”
 # Leave a Reply
 关于我
 []()

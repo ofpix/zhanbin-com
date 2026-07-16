@@ -24,8 +24,6 @@ categories: [blog]
 
 2、万圣书园、光合作用
 
-目录（五折）：
-
 全球营销管理
 
 国际商务：全球市场竞争
@@ -49,8 +47,6 @@ categories: [blog]
 组织行为学精要
 
 经济学原理（上、下）
-
-目录（原价）：
 
 期刊编辑
 
@@ -82,13 +78,11 @@ Entry Filed under:
 
 1.
 
-
 Rocky)  |  七月 27th, 2005 at 8:35 am
 
 政府的媒体公关与新闻发布——一个发言人的必备手册……这本我在去广州在飞机上、宾馆房间里看完的
 
 2.
-
 
 Rocky)  |  七月 27th, 2005 at 8:36 am
 
@@ -96,13 +90,11 @@ Rocky)  |  七月 27th, 2005 at 8:36 am
 
 3.
 
-
 horse)  |  七月 27th, 2005 at 10:09 pm
 
 没有时间看，查资料用好了，呵呵:D
 
 4.
-
 
 Rocky)  |  八月 3rd, 2005 at 10:47 am
 
@@ -110,13 +102,11 @@ Rocky)  |  八月 3rd, 2005 at 10:47 am
 
 5.
 
-
 Hyuhui)  |  八月 11th, 2005 at 10:47 pm
 
 哇！～～这么多书？！厉害！佩服！
 
 6.
-
 
 biobaselou  |  八月 16th, 2005 at 12:45 am
 
@@ -134,14 +124,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

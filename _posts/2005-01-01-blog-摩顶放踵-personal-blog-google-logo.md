@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » google logo
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 by horse in on @ 10:44 pm | [)
@@ -16,13 +14,9 @@ by horse in on @ 10:44 pm | [)
 
 无留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -49,7 +43,7 @@ keyit.focus();
 
 网络害怕寂静，敬请留言或发表评论，以免惶恐不安
 
-（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：分类广告站、社区、地域性网站)
+（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：
 
 Categories
 
@@ -136,7 +130,6 @@ recent comments
 hairuo: hairuo: doubleaf: horse: Rocky: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

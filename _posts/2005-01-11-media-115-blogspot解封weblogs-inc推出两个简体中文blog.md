@@ -4,43 +4,26 @@ date: 2005-01-11 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » Blogspot解封，Weblogs Inc.推出两个简体中文blog
-
-■ 广泛传播 ■ media blog
-
-首页
-
 欢迎在文后发表评论
 
 重要页:
 
 广泛传播日报
-文章档案
+文章
 
-订阅 
+Bloglines
 
-Bloglines订阅
-Newsgator订阅
+My Msn
 
-My Msn订阅
-My Yahoo订阅
+Rojo
 
-Rojo订阅
-gougou订阅
-周博通订阅
-
-博阅订阅
-
-
-分类：
+博阅
 
 互联网 (52)
 
 杂志 (15)
 
 随便说说 (57)
-
-存档文章：
 
 十一月 2005 (11)
 十月 2005 (20)
@@ -88,21 +71,17 @@ Yahoo!释出4项新服务
 Blogspot解封，Weblogs Inc.推出两个简体中文blog
 十月 11, 2005 on 8:11 pm | In 随便说说 | 
 
-
 Blogger是个写作工具，其官方托管站点是blogspot.com，一直被GFW在大家视线之外，如今解封了，有人说李开复真是伟大……但是blogspot上确实有非常多的优秀站点，希望blogs.com和blogsome等也能解封。
 
 Engadget中文版正式发布，除了engadget与此同时发布的还有Autoblog。
 
 随机推荐文章：
-新旧web人与事：分类广告站、社区、地域性网站“坏消息”和“好消息”组成的拟态现实（上）看一本杂志看什么？Adobe收购Macromediapaypal中国版本上线
+新旧web人与事：
 
 6 留言 
 »
 
-订阅此文章的留言RSS。 
-
 TrackBack URI
-
 
 oh yeah
 
@@ -173,10 +152,7 @@ XHTML:
 类别:所有类别图书影视/VCD/DVD音乐/CD/磁带日用/百货玩具/礼品/时尚游戏软件/硬件数码产品 关键词: 
 
 ■ 广泛传播 ■ 最新文章
-» 如果生产方式和阅读方式都改变了？报纸还能存在吗？» 微内容及我对其的理解：结构化和人格化» 网络传播专题讲座全部课程内容及课程小结» wikipedia与六度间隔的“语境问题”» 技术以组织者的身份驱动Web2.0» 网络传播专题讲座通知» 网络传播专题讲座最新信息» postshow、blogbeta与ofblog——利用blog做更多的事情» 中文网志年会web2.0演讲ppt下载» 中文网志年会3日～4日人物印象记» 关于年会演讲的ppt» 美国杂志编辑学会评选出40年最佳封面杂志» 存照，正视听» 搜索引擎功能大比拼» 讲座：web标准与用户体验» 我承认，我很郁闷，并渴望诅咒» 评globehr新版：职业搜索也要社会性» 精英写blog＝精英落草» 统计数据：Technorati描述的blogosphere» Feedburner强化对Yahoo! Podcasts的支持
-■ 广泛传播 ■ 最新评论
-» feelgood: 非常感谢詹老师的课程，使我...» horse: 暂时没有，似乎很快就会有人...» tvdotnet: 请问国内有没有Technorati这样的...» 哈哟: 哈哟，看不出来，詹老师居然...» MeetRain: 字数有限制？？？ :'( 后面写...» MeetRain: 老师：
-您觉得像三联，瑞丽，...» 史叶儒檀: 门户－搜索－web2.0三个时期的...» keso: 昨日新闻 - ohmynews的一些细节
+» 如果生产方式和阅读方式都改变了？报纸还能存在吗？» 微内容及我对其的理解：结构化和人格化» 网络传播专题讲座全部课程内容及课程小结» wikipedia与六度间隔的“语境问题”» 技术以组织者的身份驱动Web2.0» 网络传播专题讲座通知» 网络传播专题讲座最新信息» postshow、blogbeta与ofblog——利用blog做更多的事情» 中文网志年会web2.0演讲ppt下载» 中文网志年会3日～4日人物印象记» 关于年会演讲的ppt» 美国杂志编辑学会评选出40年最佳封面杂志» 存照，正视听» 搜索引擎功能大比拼» 讲座：web标准与用户体验» 我承认，我很郁闷，并渴望诅咒» 评globehr新版：职业搜索也要社会性» 精英写blog＝精英落草» 统计数据：Technorati描述的blogosphere» 
 
 o...» horse: >>什么样的杂志才算得上是...» MeetRain: 直言不讳：
 就觉得吕欣欣和郝...» MeetRain: 老师：

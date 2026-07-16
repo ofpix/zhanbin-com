@@ -4,18 +4,10 @@ date: 2005-01-21 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » QQ也有好用的地方，有时候还不得不用
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 QQ也有好用的地方，有时候还不得不用
-
 
 五月 21st, 2005
 
@@ -29,13 +21,11 @@ QQ有如此之大的用户群基础，这决定了它做什么都能立刻“放
 
 至少，现在QQ看起来，它已经在某些地方具有“微软”的特点了，因为庞大的用户基础，他们只需要稍微准确一点“跟进”，而不用特意创新，就能够保持某种程度的领先。
 
-
 Entry Filed under: 互联网
 
 8 Comments Add your own
 
 1.
-
 
 旧烟斗  |  五月 21st, 2005 at 1:25 pm
 
@@ -43,13 +33,11 @@ Entry Filed under: 互联网
 
 2.
 
-
 Datou  |  五月 21st, 2005 at 3:41 pm
 
 我什么都不说
 
 3.
-
 
 WebLeOn  |  五月 21st, 2005 at 5:09 pm
 
@@ -57,13 +45,11 @@ WebLeOn  |  五月 21st, 2005 at 5:09 pm
 
 4.
 
-
 southeen  |  五月 21st, 2005 at 11:43 pm
 
 我觉得QQ越做越大，速度慢了不少。不过周围的人都用，好多通知都用qq，所以也不能完全丢了他。讨厌他却不得不用他。
 
 5.
-
 
 木犸  |  五月 22nd, 2005 at 10:37 pm
 
@@ -71,20 +57,17 @@ southeen  |  五月 21st, 2005 at 11:43 pm
 
 6.
 
-
 hzm101  |  五月 25th, 2005 at 5:35 pm
 
 QQ也没有什么好的。其实大家不知道，Skype才是真正的好，超清晰的通话效果，比电话还要好。快去试试吧。在TOM上，你可以找得到。
 
 7.
 
-
 horse  |  五月 27th, 2005 at 10:22 am
 
 呵呵，skype还不错……
 
 8.
-
 
 WOLFay  |  八月 19th, 2005 at 10:10 am
 
@@ -102,9 +85,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -114,28 +94,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -145,9 +122,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

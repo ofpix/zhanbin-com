@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 没房没车只有blog
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 “”是对的胡之光的采访。没有什么可同情的，因为blogcn的前景似乎不错，至少“房”和“车”是可以指望的。
@@ -23,7 +21,6 @@ by horse in on @ 7:18 pm | [)
 随机显示文章
 
 12 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -106,9 +103,6 @@ By horse) on 03.19.05 11:38 pm
 我也为自己狂掬一把同情泪，我是没房没车没男友只有blog啊。。。而且以前的blog还被废掉了。。。大哭啊……
 
 By dididar) on 04.02.05 7:21 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -229,7 +223,6 @@ recent comments
 楚宁: horse: 楚宁: horse: Hyuhui: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

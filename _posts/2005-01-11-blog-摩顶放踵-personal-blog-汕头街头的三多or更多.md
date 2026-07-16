@@ -28,13 +28,11 @@ Entry Filed under:
 
 1.
 
-
 robbinlok  |  十月 13th, 2005 at 12:00 am
 
 和我们鄂州那里像不像啊?好象小城市的气息很浓啊:)
 
 2.
-
 
 robbinlok  |  十月 13th, 2005 at 12:08 am
 
@@ -52,14 +50,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

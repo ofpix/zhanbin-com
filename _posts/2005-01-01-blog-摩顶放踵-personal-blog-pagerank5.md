@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » PageRank＝5
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 PageRank一直没有变化，今天突然发现首页从0到5，3个blog也分别是4……感到很快乐。发现留言也有好几个……真好。
@@ -17,7 +15,6 @@ by horse in on @ 7:23 pm | [)
 随机显示文章
 
 5 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -54,9 +51,6 @@ By Ranhoo) on 04.25.05 3:34 am
 加油啊,老詹,俺的是3.
 
 By Norasun) on 05.10.05 8:49 am 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -178,7 +172,6 @@ recent comments
 小谢: 井中: horse: jinghua1000: 黄靖昀: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

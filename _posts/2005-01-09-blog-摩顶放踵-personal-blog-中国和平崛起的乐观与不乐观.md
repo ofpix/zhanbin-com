@@ -44,7 +44,6 @@ Entry Filed under:
 
 1.
 
-
  |  七月 9th, 2005 at 6:11 pm
 
 […] 功。 到达这种境界也不是一两天就可以的。 这里还有zhanbin老师的一篇文章，精彩 
@@ -63,14 +62,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

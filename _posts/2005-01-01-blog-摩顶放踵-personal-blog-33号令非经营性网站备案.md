@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 33号令：非经营性网站备案
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 备案网址 
@@ -23,7 +21,6 @@ by horse in on @ 11:58 am | [)
 随机显示文章
 
 2 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -54,9 +51,6 @@ ICP与IP备案管理系统常见问题总结（FAQ）
 按信产部备案网站上的什么叫”电子公告服务”的定义,那如果大家即使备案了,也只能做静态页面的网站,因为这个”电子公告服务”的专项审批实在太麻烦了,这以说网将不网了,试问哪个个人的网站没有交互式的栏目呢,看看动网论坛风行就知道了.
 
 By Fandy on 05.18.05 2:49 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -178,7 +172,6 @@ recent comments
 小谢: 井中: horse: jinghua1000: 黄靖昀: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

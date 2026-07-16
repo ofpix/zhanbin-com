@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 素描：消费社会的专栏作者
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 他时而咬牙切齿地鞭挞消费，他又时而欢欣雀跃地鼓吹消费——他在消费观点，再捎带手地进行二手生产。
@@ -18,13 +16,9 @@ by horse in on @ 5:27 pm | [)
 
 无留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -122,7 +116,6 @@ recent comments
 赢者网络: 大智周: 大智周: 雪浩: horse: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

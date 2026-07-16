@@ -20,7 +20,6 @@ Entry Filed under:
 
 1.
 
-
 twelve)  |  八月 18th, 2005 at 6:51 pm
 
 和我家似乎都差不多，农村都差不多吧，
@@ -29,20 +28,17 @@ twelve)  |  八月 18th, 2005 at 6:51 pm
 
 2.
 
-
 horse)  |  八月 18th, 2005 at 10:16 pm
 
 吃的水边和山边还是很不一样吧，靠啥吃啥……
 
 3.
 
-
 Rocky)  |  八月 20th, 2005 at 9:16 am
 
 你大伯旁边的警车是咋回事儿？
 
 4.
-
 
 horse)  |  八月 20th, 2005 at 11:25 am
 
@@ -60,14 +56,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

@@ -24,20 +24,17 @@ Entry Filed under:
 
 1.
 
-
 shunz)  |  十月 27th, 2005 at 10:11 pm
 
 ^_^，职业变化真快。
 
 2.
 
-
 寥寥  |  十月 28th, 2005 at 12:48 am
 
 很多职业认证是毫无价值的
 
 3.
-
 
 Webleon)  |  十月 28th, 2005 at 3:26 am
 
@@ -57,12 +54,9 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 信息台
-
-订阅 [)
 
 [)
 
@@ -70,8 +64,7 @@ Some HTML allowed:
 
 Most Recent Posts
 
-美国杂志编辑学会评选出40年最佳封面杂志)存照，正视听)搜索引擎功能大比拼)讲座：web标准与用户体验)我承认，我很郁闷，并渴望诅咒)评globehr新版：职业搜索也要社会性)精英写blog＝精英落草)统计数据：Technorati描述的blogosphere)Feedburner强化对Yahoo! Podcasts的支持)Audacity没有保存.aup怎办？)
-为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)opensource、e-learning和open education)
+美国杂志编辑学会评选出40年最佳封面杂志)存照，正视听)搜索引擎功能大比拼)讲座：web标准与用户体验)我承认，我很郁闷，并渴望诅咒)评globehr新版：职业搜索也要社会性)精英写blog＝精英落草)统计数据：Technorati描述的blogosphere)
 
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 

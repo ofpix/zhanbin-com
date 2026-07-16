@@ -6,12 +6,9 @@ categories: [blog]
 
 ■ 摩 顶 放 踵 ■ personal blog » 警惕“生活是美好的.pps”强病毒
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 朋友发来信件说有一个厉害的病毒，转贴如下：
-
 
 急件！请大家告诉大家~~~~要快速的传！
 
@@ -31,7 +28,6 @@ by horse in on @ 12:39 pm | [)
 
 1 留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
@@ -41,9 +37,6 @@ by horse in on @ 12:39 pm | [)
 太可怕了，我还没备份呢，过于相信卡巴
 
 By 小谢) on 03.21.05 11:55 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -135,7 +128,6 @@ recent comments
 顺顺: brick: horse: brick: ■ 摩 顶 放 踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

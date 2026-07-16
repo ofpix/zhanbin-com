@@ -18,20 +18,17 @@ Entry Filed under:
 
 1.
 
-
 doubleaf)  |  八月 16th, 2005 at 3:14 pm
 
 不错，我们那里比较逼仄，到处都有房子。可能是我们那里人太多的缘故，不过现在的年轻人也都进城打工了，家里都是老人孩子。还有，我们那河流也不少
 
 2.
 
-
 hairuo)  |  八月 22nd, 2005 at 12:45 pm
 
 很不错，这几年每次回家也才开始有这样的重新认识。
 
 3.
-
 
 hairuo)  |  八月 22nd, 2005 at 12:46 pm
 
@@ -49,14 +46,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

@@ -24,13 +24,11 @@ Entry Filed under:
 
 1.
 
-
 abc  |  三月 27th, 2005 at 10:41 pm
 
 据说那里会变成另外一家很知名的书店。
 
 2.
-
 
 horse)  |  三月 28th, 2005 at 11:04 am
 
@@ -38,13 +36,11 @@ horse)  |  三月 28th, 2005 at 11:04 am
 
 3.
 
-
 horse)  |  三月 28th, 2005 at 8:06 pm
 
 今天去听说是户外用品的店，也还不错
 
 4.
-
 
 良  |  四月 29th, 2005 at 7:07 pm
 
@@ -62,14 +58,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

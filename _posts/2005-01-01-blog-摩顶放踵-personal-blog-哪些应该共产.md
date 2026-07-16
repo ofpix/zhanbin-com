@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 哪些应该共产？ 
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 “共产”这个词已经将“公共拥有”定义进去了，“公共拥有”也因资本主义文明开始逐步发展成为社会主流价值之一，即当代社会都重视“公物”，讲求共同享有。
@@ -26,7 +24,6 @@ by horse in on @ 5:16 pm | [)
 
 1 留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
@@ -36,9 +33,6 @@ by horse in on @ 5:16 pm | [)
 […] 管理者”的“权力”太大了，即便是“圆明园”的“管理者”。在“哪些应该共产”里面我就说过，像这些公共遗产的“管理者”只是行使“托管 […]
 
 By ■ 摩 顶 放 踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主) on 04.17.05 5:33 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -159,7 +153,6 @@ recent comments
 babyfish: horse: horse: babyfish: 楚宁: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

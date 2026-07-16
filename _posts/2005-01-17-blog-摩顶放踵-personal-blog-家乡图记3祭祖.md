@@ -20,20 +20,17 @@ Entry Filed under:
 
 1.
 
-
 biantaishabi)  |  八月 17th, 2005 at 11:26 am
 
 半裸，半裸照！！
 
 2.
 
-
 biantaishabi)  |  八月 17th, 2005 at 11:28 am
 
 我们家昨天也祭祖了，不过是在我们的房顶上搞得。家里人说昨天是七月半，是中国的鬼节，所以要“烧包”给死去的亲人。
 
 3.
-
 
 doubleaf)  |  八月 17th, 2005 at 6:12 pm
 
@@ -51,14 +48,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

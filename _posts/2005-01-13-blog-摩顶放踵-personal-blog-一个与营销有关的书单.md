@@ -34,13 +34,11 @@ Entry Filed under:
 
 1.
 
-
 Hyuhui)  |  九月 13th, 2005 at 7:35 pm
 
 《引爆流行》
 
 2.
-
 
 horse)  |  九月 13th, 2005 at 11:33 pm
 
@@ -48,20 +46,17 @@ horse)  |  九月 13th, 2005 at 11:33 pm
 
 3.
 
-
 楚宁  |  九月 14th, 2005 at 2:16 pm
 
 嘿嘿，詹膑老兄，我是小楚，向嫂子问好哦！没什么事上来看看。
 
 4.
 
-
 horse)  |  九月 14th, 2005 at 6:12 pm
 
 呵呵，你也好啊～ 有学生找你没？
 
 5.
-
 
 楚宁  |  九月 16th, 2005 at 4:36 pm
 
@@ -79,14 +74,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

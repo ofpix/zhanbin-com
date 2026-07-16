@@ -20,7 +20,6 @@ Entry Filed under:
 
 1.
 
-
 MeetRain  |  七月 28th, 2005 at 9:42 am
 
 我在想像这样一个被称之为经典作品，人们购买它的目的是什么呢，不应该是使用吧。而我们所生产的，很直接就是为了生活所需。
@@ -41,14 +40,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

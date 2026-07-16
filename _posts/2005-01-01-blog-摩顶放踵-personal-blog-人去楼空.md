@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 人去楼空
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 今天早上用foxmail收信，突然发现smth的账号来了一堆信，都是好友留下联系方法。
@@ -19,7 +17,6 @@ by horse in on @ 9:52 am | [)
 随机显示文章
 
 5 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -59,9 +56,6 @@ By twelve) on 04.30.05 11:28 am
 
 By liuyuefly on 05.14.05 10:07 am 
 
-订阅此文章的留言RSS。) 
-
-
 )
 写留言
 
@@ -87,7 +81,7 @@ keyit.focus();
 
 网络害怕寂静，敬请留言或发表评论，以免惶恐不安
 
-（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：分类广告站、社区、地域性网站)新旧web人与事：Rss、博览、feedsky、博阅)
+（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：
 
 Categories
 
@@ -172,7 +166,6 @@ recent comments
 biantaishabi: biantaishabi: horse: biantaishabi: doubleaf: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

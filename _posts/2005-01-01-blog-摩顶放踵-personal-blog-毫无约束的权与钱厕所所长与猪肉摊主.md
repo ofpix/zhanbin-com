@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 “老子说不让你上厕所，就不让你上厕所，憋死你！kao，不然老子白当了厕所所长了。”
@@ -39,7 +37,6 @@ by horse in on @ 5:33 pm | [)
 随机显示文章
 
 3 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -74,9 +71,6 @@ By horse) on 04.18.05 11:19 am
 看来老外写的时候没有考虑多语言的扩展啊 xixi
 
 By brick) on 04.18.05 8:40 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -193,7 +187,6 @@ recent comments
 biantaishabi: horse: 花小卷: 花小卷: renyang: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

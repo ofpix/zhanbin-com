@@ -18,13 +18,11 @@ Entry Filed under:
 
 1.
 
-
 Rocky)  |  七月 7th, 2005 at 10:20 am
 
 呕吐中……
 
 2.
-
 
 老马)  |  七月 7th, 2005 at 11:26 am
 
@@ -32,13 +30,11 @@ Rocky)  |  七月 7th, 2005 at 10:20 am
 
 3.
 
-
 shunz)  |  七月 7th, 2005 at 12:37 pm
 
 感觉在党的教育下，很多人的道德水平还处在科尔伯格理论的“前习俗道德”水平，即还处在7-10岁的儿童道德水平。
 
 4.
-
 
 鹤  |  七月 7th, 2005 at 4:47 pm
 
@@ -48,20 +44,17 @@ shunz)  |  七月 7th, 2005 at 12:37 pm
 
 5.
 
-
 暖暖鱼)  |  七月 8th, 2005 at 3:56 am
 
 凡是不尊重人性的，便怀疑其价值。
 
 6.
 
-
 小谢)  |  七月 14th, 2005 at 9:53 pm
 
 horse是党员吗，我也快预备了
 
 7.
-
 
 horse)  |  七月 14th, 2005 at 11:29 pm
 
@@ -79,14 +72,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

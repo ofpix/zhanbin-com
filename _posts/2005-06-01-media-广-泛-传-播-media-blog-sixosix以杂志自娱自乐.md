@@ -25,11 +25,7 @@ by horse in Uncategorized on 02.28.05 @ 7:06 pm |
 
 无留言 so far
 
-
 Leave a comment
-
-订阅此文章的留言RSS。 
-TrackBack URI
 
 写留言
 
@@ -85,7 +81,6 @@ WebLeOn
 酒游花
 
 syndicate
-订阅本站
 
 Syndicate this site
 
@@ -93,7 +88,6 @@ recent comments
 athena: 这些东西，对我来说，一切都...horse: 我觉得“守门”对传统媒体是...ella: 其实传统媒体是不是也把内容...orchidson: 嘿嘿，不错的地方，有空到新...horse: en，我的想法也是类似tag或者分...
 
 Except noted, this site is licensed under a Creative Commons License
-
 
 Powered by wordpress. Theme based on MinimaPlus
 

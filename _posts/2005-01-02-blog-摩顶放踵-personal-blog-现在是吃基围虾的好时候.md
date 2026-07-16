@@ -18,7 +18,6 @@ Entry Filed under:
 
 1.
 
-
  |  七月 2nd, 2005 at 2:54 am
 
 现在是吃基围虾的好时候
@@ -29,7 +28,6 @@ horse说
 
 2.
 
-
 biantaishabi)  |  七月 4th, 2005 at 12:32 am
 
 great!
@@ -39,7 +37,6 @@ great!
 只是首页的每个blog的post列表都不更新
 
 3.
-
 
 horse)  |  七月 4th, 2005 at 12:35 am
 
@@ -57,14 +54,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

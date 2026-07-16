@@ -4,18 +4,10 @@ date: 2005-01-03 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » 百度logo新动向
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 百度logo新动向
-
 
 四月 3rd, 2005
 
@@ -23,13 +15,11 @@ categories: [media]
 
 有很多种声音，我还是坚持：baidu的换logo是个糟糕透了的主意。此外听说百度有在和一家不错的设计起家的广告公司谈logo设计的事情，有可能这些logo都不是最后的结果，这似乎是一个更好的态度，唯一担心的是这个强调设计的公司会过于想原创......
 
-
 Entry Filed under: 随便说说
 
 2 Comments Add your own
 
 1.
-
 
 ■ 广 泛 传 播 ■ m&hellip  |  四月 7th, 2005 at 7:35 am
 
@@ -38,7 +28,6 @@ Entry Filed under: 随便说说
 关于百度换logo，baidu的换logo是个糟糕透了的主意和百度logo新动向阐述了我的意见，今天一早从keso那里看到“百度致网民的公 [...]
 
 2.
-
 
 未完成 - Incomplete &r&hellip  |  四月 10th, 2005 at 10:38 pm
 
@@ -58,9 +47,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -70,28 +56,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -101,9 +84,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

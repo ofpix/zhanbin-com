@@ -28,7 +28,6 @@ Entry Filed under:
 
 1.
 
-
 biantaishabi)  |  八月 7th, 2005 at 11:22 am
 
 有着样的想法估计是你最近太忙了
@@ -38,7 +37,6 @@ biantaishabi)  |  八月 7th, 2005 at 11:22 am
 因为太闲了
 
 2.
-
 
 amanda  |  八月 8th, 2005 at 4:57 pm
 
@@ -52,20 +50,17 @@ amanda  |  八月 8th, 2005 at 4:57 pm
 
 3.
 
-
 dancemoon)  |  八月 8th, 2005 at 9:25 pm
 
 来大连吧,大连更好玩~
 
 4.
 
-
 Ranhoo)  |  八月 8th, 2005 at 11:02 pm
 
 haha,有人给大连做广告
 
 5.
-
 
 horse)  |  八月 8th, 2005 at 11:19 pm
 
@@ -83,14 +78,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

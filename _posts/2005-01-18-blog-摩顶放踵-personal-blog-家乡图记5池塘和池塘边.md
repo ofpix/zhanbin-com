@@ -22,7 +22,6 @@ Entry Filed under:
 
 1.
 
-
 jinghua1000  |  九月 28th, 2005 at 4:54 pm
 
 景色很美，我喜欢。野生，自然。
@@ -39,14 +38,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

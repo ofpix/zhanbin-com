@@ -22,20 +22,17 @@ Entry Filed under:
 
 1.
 
-
 JoyChan)  |  五月 16th, 2005 at 2:13 am
 
 boingboing？为什么不试试我这个blog呢
 
 2.
 
-
 horse)  |  五月 18th, 2005 at 11:36 pm
 
 boingboing in china? 晕啊……我也打算弄一个玩儿的……
 
 3.
-
 
  |  五月 30th, 2005 at 3:27 pm
 
@@ -53,14 +50,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

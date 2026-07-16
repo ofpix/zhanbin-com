@@ -30,7 +30,6 @@ Entry Filed under:
 
 1.
 
-
 biantaishabi)  |  八月 8th, 2005 at 6:08 pm
 
 我也很喜欢doubleaf
@@ -41,13 +40,11 @@ biantaishabi)  |  八月 8th, 2005 at 6:08 pm
 
 2.
 
-
 horse)  |  八月 8th, 2005 at 6:14 pm
 
 haha，我也觉得这样……
 
 3.
-
 
 doubleaf)  |  八月 8th, 2005 at 7:25 pm
 
@@ -57,13 +54,11 @@ doubleaf)  |  八月 8th, 2005 at 7:25 pm
 
 4.
 
-
 shunz)  |  八月 8th, 2005 at 7:44 pm
 
 5个太少了。。。
 
 5.
-
 
 awei)  |  八月 9th, 2005 at 1:54 am
 
@@ -71,13 +66,11 @@ awei)  |  八月 9th, 2005 at 1:54 am
 
 6.
 
-
 loverty)  |  八月 9th, 2005 at 9:41 am
 
 多谢horse夸奖！
 
 7.
-
 
  |  八月 19th, 2005 at 5:05 pm
 
@@ -95,14 +88,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

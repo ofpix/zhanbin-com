@@ -31,11 +31,7 @@ by horse in Uncategorized on 05.12.05 @ 10:28 pm |
 
 无留言 so far
 
-
 Leave a comment
-
-订阅此文章的留言RSS。 
-TrackBack URI
 
 写留言
 
@@ -72,7 +68,6 @@ Archives by Month
 九月 2004 
 
 Search
-
 
 pose中文开放课程
 
@@ -124,7 +119,6 @@ zheng
 韦钰
 
 syndicate
-订阅本站
 
 Syndicate this site
 
@@ -135,6 +129,5 @@ Hello world!
 九月...MeetRain: 好久不来老师这里了，刚才和...
 
 Except noted, this site is licensed under a Creative Commons License
-
 
 Powered by wordpress. Theme based on MinimaPlus

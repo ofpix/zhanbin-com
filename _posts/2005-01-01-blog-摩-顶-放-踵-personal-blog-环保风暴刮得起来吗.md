@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩 顶 放 踵 ■ personal blog » 环保风暴刮得起来吗？
 
-            
-
 “”无论多么困难，都有具体数据作为呈堂证物，而且有严密科学的审计程序可资保障，并且犯错误者必须面对实实在在的具体错误事实，而且受到极为严厉的舆论压力和道德谴责。而，呢？多多少少让人很担心。
 
 “环保”问题一直是社会热点，并且前前后后人大、国务院、环保总局、新闻媒体、民间志愿者、学者等无数人投身其中，希望能够促进中国的环保事业，能够使地方可持续性发展，其中无数努力和争论都袒呈参与者的赤子热情。但是，收效呢？难道不是争论反而越来越多，问题通过反复讨论让我们觉得事情只是更加棘手吗？法制与行政、地方与中央、发展问题、企业作为……搅和在一起，以至于我颇为担心：环保风暴刮得起来吗？
@@ -28,13 +26,9 @@ by horse in on @ 1:06 pm | [)
 
 无留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -109,7 +103,6 @@ recent comments
 hklouie: Eric: Ginger: geneboy: Antonis: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

@@ -4,18 +4,10 @@ date: 2005-01-15 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » 从人际传播到人际营销到人际病毒
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 从人际传播到人际营销到人际病毒
-
 
 三月 15th, 2005
 
@@ -31,13 +23,11 @@ categories: [media]
 
 ■ 最大的危险是，当大众媒体的有效性降低以后，大家都转向人际传播“广告”信息，当人际关系彻底被应用成“商业需求”时，当sns、msn等都在极大促进这种“人际关系商业化”时，“人际关系”不仅会受到病毒的侵扰，而且可能会从根本上改变其性质。如果说，最后你的msn列表上的人都在计算你对他的可资利用的价值，而且这个价值不是和心理、头脑有关，而是和金钱、商业机会有关时，我们的人际是否会被彻底变性？当商业系统已经将人际资源纳入到系统之内时，它被价值化、价格化和量化已经成为必然。
 
-
 Entry Filed under: 随便说说
 
 2 Comments Add your own
 
 1.
-
 
 Journalist  |  四月 12th, 2005 at 3:56 pm
 
@@ -54,7 +44,6 @@ Horse师兄:
 Journalist, 拜
 
 2.
-
 
 horse  |  四月 12th, 2005 at 6:32 pm
 
@@ -74,9 +63,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -86,28 +72,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -117,9 +100,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

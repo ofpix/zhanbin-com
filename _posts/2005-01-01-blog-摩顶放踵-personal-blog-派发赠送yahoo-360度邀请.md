@@ -20,20 +20,17 @@ Entry Filed under:
 
 1.
 
-
 wangwenyou)  |  四月 1st, 2005 at 10:33 am
 
 先要一个，谢谢了：）
 
 2.
 
-
 Henry)  |  四月 1st, 2005 at 12:01 pm
 
 也来要一个。
 
 3.
-
 
 CrazyMan  |  四月 1st, 2005 at 12:26 pm
 
@@ -45,13 +42,11 @@ CrazyMan  |  四月 1st, 2005 at 12:26 pm
 
 4.
 
-
 horse)  |  四月 1st, 2005 at 12:44 pm
 
 好像得要email啊…留言email…
 
 5.
-
 
 sunny  |  四月 1st, 2005 at 1:06 pm
 
@@ -61,7 +56,6 @@ sunny  |  四月 1st, 2005 at 1:06 pm
 
 6.
 
-
 ctiam  |  四月 1st, 2005 at 2:21 pm
 
 我也想要，谢谢
@@ -70,13 +64,11 @@ ctiam  |  四月 1st, 2005 at 2:21 pm
 
 7.
 
-
 ripplebobo  |  四月 1st, 2005 at 3:03 pm
 
 给一个吧，thanks！
 
 8.
-
 
 ripplebobo  |  四月 1st, 2005 at 3:04 pm
 
@@ -84,13 +76,11 @@ ripplebobo  |  四月 1st, 2005 at 3:04 pm
 
 9.
 
-
 Lotos.Lee  |  四月 1st, 2005 at 4:06 pm
 
 test以下，thx
 
 10.
-
 
 aj4x  |  四月 1st, 2005 at 5:45 pm
 
@@ -100,7 +90,6 @@ aj4×2003@yahoo.com
 
 11.
 
-
 aj4x  |  四月 1st, 2005 at 5:46 pm
 
 想要一个，谢谢你。
@@ -108,7 +97,6 @@ aj4x  |  四月 1st, 2005 at 5:46 pm
 aj4×2003@yahoo.com
 
 12.
-
 
 heavenlaughter@126.com)  |  四月 1st, 2005 at 7:26 pm
 
@@ -118,13 +106,11 @@ heavenlaughter@126.com)  |  四月 1st, 2005 at 7:26 pm
 
 13.
 
-
 FM  |  四月 1st, 2005 at 7:56 pm
 
 我也要一个，多谢了。
 
 14.
-
 
 FM  |  四月 1st, 2005 at 7:57 pm
 
@@ -134,7 +120,6 @@ FM  |  四月 1st, 2005 at 7:57 pm
 
 15.
 
-
 eric  |  四月 1st, 2005 at 8:04 pm
 
 很想用！
@@ -143,13 +128,11 @@ eric  |  四月 1st, 2005 at 8:04 pm
 
 16.
 
-
 Norasun  |  四月 1st, 2005 at 9:45 pm
 
 老詹，那是啥玩意啊？俺想试试，呵呵，Email留下了：norasunATgmail.com
 
 17.
-
 
 Norasun  |  四月 1st, 2005 at 9:47 pm
 
@@ -157,13 +140,11 @@ Norasun  |  四月 1st, 2005 at 9:47 pm
 
 18.
 
-
 horse)  |  四月 1st, 2005 at 10:07 pm
 
 上面留言的邀请均已发出…
 
 19.
-
 
 mimitech)  |  四月 1st, 2005 at 10:49 pm
 
@@ -173,7 +154,6 @@ mimitech at gmail.com
 
 20.
 
-
 brick)  |  四月 2nd, 2005 at 1:33 am
 
 我要一个 thanks
@@ -181,7 +161,6 @@ brick)  |  四月 2nd, 2005 at 1:33 am
 对了 主人现在在那个学校呀 xixi
 
 21.
-
 
 BSDMAN  |  四月 2nd, 2005 at 2:43 am
 
@@ -191,13 +170,11 @@ BSDMAN  |  四月 2nd, 2005 at 2:43 am
 
 22.
 
-
 aj4x  |  四月 2nd, 2005 at 6:08 am
 
 已经开始使用了。谢谢！
 
 23.
-
 
 horse)  |  四月 2nd, 2005 at 7:55 am
 
@@ -205,13 +182,11 @@ horse)  |  四月 2nd, 2005 at 7:55 am
 
 24.
 
-
  |  四月 2nd, 2005 at 8:25 am
 
 […] eso那里得到的邀请，试用了一下，觉得方便快捷，于是在自己的blog上派发赠送yahoo 360度邀请，继续测试。暂还没有深入使用blog和photo等其它功能， […]
 
 25.
-
 
 yanbing  |  四月 2nd, 2005 at 9:14 am
 
@@ -221,20 +196,17 @@ yanbing  |  四月 2nd, 2005 at 9:14 am
 
 26.
 
-
 Rocky)  |  四月 2nd, 2005 at 1:21 pm
 
 谢谢，我要一个体验一下：rockychen21 at gmail dot com
 
 27.
 
-
 murphy  |  四月 2nd, 2005 at 1:46 pm
 
 你好horse，就是周四晚在学校门口和木先生同你聊了两小时的，叫我Murphy就行。1＋1＞2的道理是不会错的，彼晚多有裨益，希望可以常聊。如果可以的话请给个邀请，3X。
 
 28.
-
 
 twelve  |  四月 2nd, 2005 at 2:23 pm
 
@@ -246,13 +218,11 @@ twelve  |  四月 2nd, 2005 at 2:23 pm
 
 29.
 
-
 boywfh  |  四月 2nd, 2005 at 4:17 pm
 
 我要一个 谢谢了～
 
 30.
-
 
 boywfh  |  四月 2nd, 2005 at 4:18 pm
 
@@ -262,20 +232,17 @@ boywfh  |  四月 2nd, 2005 at 4:18 pm
 
 31.
 
-
 horse)  |  四月 2nd, 2005 at 4:45 pm
 
 上面均已发送
 
 32.
 
-
 cctv  |  四月 2nd, 2005 at 5:03 pm
 
 要一个非常的感谢！！li98311@etang.com
 
 33.
-
 
 homlee  |  四月 2nd, 2005 at 5:18 pm
 
@@ -285,13 +252,11 @@ homlee  |  四月 2nd, 2005 at 5:18 pm
 
 34.
 
-
 lovemoonhan  |  四月 2nd, 2005 at 8:02 pm
 
 敬请给我一个，谢谢！
 
 35.
-
 
 lovemoonhan  |  四月 2nd, 2005 at 8:03 pm
 
@@ -299,13 +264,11 @@ lovemoonhan  |  四月 2nd, 2005 at 8:03 pm
 
 36.
 
-
 lj  |  四月 2nd, 2005 at 8:04 pm
 
 谢谢请给一个ljme@msn.com
 
 37.
-
 
 yesto1983  |  四月 2nd, 2005 at 9:06 pm
 
@@ -315,13 +278,11 @@ yesto1983  |  四月 2nd, 2005 at 9:06 pm
 
 38.
 
-
 yeahlo  |  四月 2nd, 2005 at 9:21 pm
 
 请给我一个。我也对他有很大兴趣哦。
 
 39.
-
 
 Glamous  |  四月 2nd, 2005 at 11:05 pm
 
@@ -331,7 +292,6 @@ Thanks.
 
 40.
 
-
 qqhugo  |  四月 2nd, 2005 at 11:40 pm
 
 [mailto:qqhugo@163.com](qqhugo@163.com)
@@ -339,7 +299,6 @@ qqhugo  |  四月 2nd, 2005 at 11:40 pm
 谢谢~~
 
 41.
-
 
 peter  |  四月 3rd, 2005 at 12:07 am
 
@@ -349,7 +308,6 @@ peter  |  四月 3rd, 2005 at 12:07 am
 
 42.
 
-
 amipro  |  四月 3rd, 2005 at 12:40 am
 
 还有吗，能给我一个吗？谢谢老大啦
@@ -357,7 +315,6 @@ amipro  |  四月 3rd, 2005 at 12:40 am
 [mailto:amipro@gmail.com](amipro@gmail.com)
 
 43.
-
 
 风烟讽喻)  |  四月 3rd, 2005 at 4:46 am
 
@@ -375,7 +332,6 @@ MAIL：admin@kumeir.com
 
 44.
 
-
 王爱平  |  四月 3rd, 2005 at 7:45 am
 
 我急需要一个啊 能发给我一个吗？
@@ -384,13 +340,11 @@ MAIL：admin@kumeir.com
 
 45.
 
-
 horse)  |  四月 3rd, 2005 at 9:02 am
 
 上述均已发出，如果未收到请联系。
 
 46.
-
 
 风烟讽喻)  |  四月 3rd, 2005 at 9:04 am
 
@@ -400,7 +354,6 @@ horse)  |  四月 3rd, 2005 at 9:02 am
 
 47.
 
-
 Albert  |  四月 3rd, 2005 at 9:17 am
 
 谢谢啊
@@ -408,7 +361,6 @@ Albert  |  四月 3rd, 2005 at 9:17 am
 [mailto:minjingshu@yahoo.com](minjingshu@yahoo.com)
 
 48.
-
 
 internetlaw  |  四月 3rd, 2005 at 9:23 am
 
@@ -418,7 +370,6 @@ internetlaw  |  四月 3rd, 2005 at 9:23 am
 
 49.
 
-
 Lee  |  四月 3rd, 2005 at 11:24 am
 
 还有吗?可否给我一个?谢谢!
@@ -427,13 +378,11 @@ Lee  |  四月 3rd, 2005 at 11:24 am
 
 50.
 
-
 SUNNY  |  四月 3rd, 2005 at 11:45 am
 
 我也想体验一下360，可以给我一个吗？谢谢
 
 51.
-
 
 SUNNY  |  四月 3rd, 2005 at 11:46 am
 
@@ -443,7 +392,6 @@ SUNNY  |  四月 3rd, 2005 at 11:46 am
 
 52.
 
-
 Hma  |  四月 3rd, 2005 at 1:37 pm
 
 请给我一个，谢谢！
@@ -451,7 +399,6 @@ Hma  |  四月 3rd, 2005 at 1:37 pm
 [mailto:wapp@vip.163.com](wapp@vip.163.com)
 
 53.
-
 
 XQuery  |  四月 3rd, 2005 at 1:58 pm
 
@@ -461,7 +408,6 @@ XQuery  |  四月 3rd, 2005 at 1:58 pm
 
 54.
 
-
 木犸)  |  四月 3rd, 2005 at 3:55 pm
 
 刚接触Blog没多久，就听说Yahoo也弄Blog了，不知道会不会也和MSN的那样太官化~也请给我一个邀请吧~ 
@@ -469,7 +415,6 @@ XQuery  |  四月 3rd, 2005 at 1:58 pm
 muma.wong+blog@gmail.com
 
 55.
-
 
 fychao  |  四月 3rd, 2005 at 5:38 pm
 
@@ -479,7 +424,6 @@ fychao  |  四月 3rd, 2005 at 5:38 pm
 
 56.
 
-
 韩坪良  |  四月 3rd, 2005 at 7:03 pm
 
 我想要一个
@@ -487,7 +431,6 @@ fychao  |  四月 3rd, 2005 at 5:38 pm
 [mailto:nkpp@163.com](nkpp@163.com)
 
 57.
-
 
 yesto1983  |  四月 3rd, 2005 at 8:03 pm
 
@@ -499,13 +442,11 @@ yesto1983  |  四月 3rd, 2005 at 8:03 pm
 
 58.
 
-
 cycxf  |  四月 3rd, 2005 at 8:29 pm
 
 来晚了,不知还有没有
 
 59.
-
 
 alex.jie  |  四月 3rd, 2005 at 8:31 pm
 
@@ -514,7 +455,6 @@ alex.jie
 谢谢您！！！
 
 60.
-
 
 alex.jie  |  四月 3rd, 2005 at 8:32 pm
 
@@ -526,7 +466,6 @@ alex.jie
 
 61.
 
-
 joynow  |  四月 3rd, 2005 at 8:33 pm
 
 我也要试用,还有吗?
@@ -537,7 +476,6 @@ joynow
 
 62.
 
-
 chenjin  |  四月 3rd, 2005 at 8:39 pm
 
 我也想要一个，谢谢。
@@ -546,20 +484,17 @@ chenjin  |  四月 3rd, 2005 at 8:39 pm
 
 63.
 
-
 cycxf  |  四月 3rd, 2005 at 8:39 pm
 
 [mailto:cycxf@263.net](cycxf@263.net)
 
 64.
 
-
 horse)  |  四月 3rd, 2005 at 9:13 pm
 
 均已发出，查收
 
 65.
-
 
 frankel  |  四月 3rd, 2005 at 9:28 pm
 
@@ -569,13 +504,11 @@ frankel  |  四月 3rd, 2005 at 9:28 pm
 
 66.
 
-
 Jimmy  |  四月 3rd, 2005 at 10:54 pm
 
 我也凑个热闹，给我一个吧，多谢！
 
 67.
-
 
 Antonis)  |  四月 4th, 2005 at 12:38 am
 
@@ -585,7 +518,6 @@ antonis_cn AT hotmail DOT com
 
 68.
 
-
 geneboy)  |  四月 4th, 2005 at 8:36 am
 
 体验一下,谢谢你!
@@ -593,7 +525,6 @@ geneboy)  |  四月 4th, 2005 at 8:36 am
 我的gmail: geneboy
 
 69.
-
 
 Ginger  |  四月 4th, 2005 at 9:11 am
 
@@ -603,7 +534,6 @@ Ginger  |  四月 4th, 2005 at 9:11 am
 
 70.
 
-
 Eric)  |  四月 4th, 2005 at 9:13 am
 
 我也去试试。
@@ -611,7 +541,6 @@ Eric)  |  四月 4th, 2005 at 9:13 am
 [mailto:sailingcelery@yahoo.com.cn](sailingcelery@yahoo.com.cn)
 
 71.
-
 
 hklouie  |  四月 4th, 2005 at 9:23 am
 
@@ -621,13 +550,11 @@ EMAIL：hklouie@yahoo.com
 
 72.
 
-
 Efox  |  四月 4th, 2005 at 11:20 am
 
 给一个名额试试.
 
 73.
-
 
 Efox  |  四月 4th, 2005 at 11:21 am
 
@@ -635,13 +562,11 @@ Efox  |  四月 4th, 2005 at 11:21 am
 
 74.
 
-
 swei  |  四月 4th, 2005 at 11:25 am
 
 haha , 谢过！
 
 75.
-
 
 swei  |  四月 4th, 2005 at 11:25 am
 
@@ -649,13 +574,11 @@ swei  |  四月 4th, 2005 at 11:25 am
 
 76.
 
-
 Francis  |  四月 4th, 2005 at 11:39 am
 
 先谢谢大大了. [mailto:apple.blog@gmail.com](apple.blog@gmail.com)
 
 77.
-
 
 SpiderMan  |  四月 4th, 2005 at 12:14 pm
 
@@ -665,7 +588,6 @@ Thanks.
 
 78.
 
-
 aven  |  四月 4th, 2005 at 1:35 pm
 
 谢谢，我想体验yahoo360！请house给一个试试
@@ -673,7 +595,6 @@ aven  |  四月 4th, 2005 at 1:35 pm
 [mailto:aven.xuan@gmail.com](aven.xuan@gmail.com)
 
 79.
-
 
 Julian  |  四月 4th, 2005 at 2:05 pm
 
@@ -683,7 +604,6 @@ Julian  |  四月 4th, 2005 at 2:05 pm
 
 80.
 
-
 guyama)  |  四月 4th, 2005 at 4:39 pm
 
 [mailto:yoyofans@hotmail.com](yoyofans@hotmail.com)
@@ -691,7 +611,6 @@ guyama)  |  四月 4th, 2005 at 4:39 pm
 谢谢哦！
 
 81.
-
 
 pete  |  四月 4th, 2005 at 6:25 pm
 
@@ -701,7 +620,6 @@ pete  |  四月 4th, 2005 at 6:25 pm
 
 82.
 
-
 pete  |  四月 4th, 2005 at 6:30 pm
 
 [mailto:p4135ve@gmail.com](p4135ve@gmail.com)
@@ -710,13 +628,11 @@ pete  |  四月 4th, 2005 at 6:30 pm
 
 83.
 
-
 horse)  |  四月 4th, 2005 at 7:52 pm
 
 yahoo更偏向sns一些，msn space还是比较blog
 
 84.
-
 
 brick)  |  四月 5th, 2005 at 2:54 am
 
@@ -724,20 +640,17 @@ brick)  |  四月 5th, 2005 at 2:54 am
 
 85.
 
-
 horse)  |  四月 5th, 2005 at 6:52 am
 
 好像有点诶…不过简洁多了..
 
 86.
 
-
 牛吃草)  |  四月 5th, 2005 at 8:35 am
 
 不知道现在还有吗?经常浏览你的blog,这一次终于给你留言了,呵呵.以后多多交流,俺也在北京.
 
 87.
-
 
 junlix  |  四月 5th, 2005 at 8:57 am
 
@@ -747,7 +660,6 @@ junlix  |  四月 5th, 2005 at 8:57 am
 
 88.
 
-
 franciz)  |  四月 5th, 2005 at 12:52 pm
 
 请您给我一个邀请，谢谢。
@@ -756,13 +668,11 @@ franciz)  |  四月 5th, 2005 at 12:52 pm
 
 89.
 
-
 vividyu  |  四月 5th, 2005 at 4:19 pm
 
 多谢，vividyu@hotmail.com
 
 90.
-
 
 kdekid  |  四月 5th, 2005 at 10:06 pm
 
@@ -772,13 +682,11 @@ would you please gimme an invitation if available? Thank you.
 
 91.
 
-
 Alan  |  四月 6th, 2005 at 8:13 am
 
 thanks
 
 92.
-
 
 rob  |  四月 6th, 2005 at 10:55 pm
 
@@ -788,7 +696,6 @@ my email:robertb9527@gmail.com
 
 93.
 
-
 reckie  |  四月 6th, 2005 at 11:42 pm
 
 还有吗?
@@ -796,7 +703,6 @@ reckie  |  四月 6th, 2005 at 11:42 pm
 给俺一个,多谢
 
 94.
-
 
 redwolf  |  四月 7th, 2005 at 11:23 am
 
@@ -806,7 +712,6 @@ redwolf  |  四月 7th, 2005 at 11:23 am
 
 95.
 
-
 daxin  |  四月 8th, 2005 at 10:23 am
 
 me, thanks
@@ -815,13 +720,11 @@ me, thanks
 
 96.
 
-
 Runda Liu  |  四月 9th, 2005 at 8:10 pm
 
 要是有，就麻烦你给我一个！
 
 97.
-
 
 排队等候，我还有希望吗？  |  四月 9th, 2005 at 8:12 pm
 
@@ -829,20 +732,17 @@ Runda Liu  |  四月 9th, 2005 at 8:10 pm
 
 98.
 
-
 jay)  |  四月 9th, 2005 at 10:14 pm
 
 如果这里没有了，可以去我那。∶）
 
 99.
 
-
 reckie  |  四月 11th, 2005 at 10:47 am
 
 谢谢horse，我的邀请已收到。THX！
 
 100.
-
 
 beitiaosi  |  四月 11th, 2005 at 2:32 pm
 
@@ -851,7 +751,6 @@ beitiaosi  |  四月 11th, 2005 at 2:32 pm
 [mailto:beitiaosi88@yahoo.com.cn](beitiaosi88@yahoo.com.cn)
 
 101.
-
 
 wang  |  四月 25th, 2005 at 3:43 pm
 
@@ -863,13 +762,11 @@ wang  |  四月 25th, 2005 at 3:43 pm
 
 102.
 
-
 horse)  |  四月 25th, 2005 at 4:01 pm
 
 sorry，我没有wallop的邀请
 
 103.
-
 
 xjq284  |  七月 21st, 2005 at 3:28 am
 
@@ -877,20 +774,17 @@ got it
 
 104.
 
-
 张  |  八月 1st, 2005 at 4:10 pm
 
 [mailto:chinazhangyougang@yahoo.com.cn](chinazhangyougang@yahoo.com.cn)
 
 105.
 
-
 horse)  |  八月 2nd, 2005 at 2:58 pm
 
 现在已经可以自由申请。
 
 106.
-
 
 xl  |  十一月 21st, 2005 at 6:30 pm
 
@@ -910,14 +804,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

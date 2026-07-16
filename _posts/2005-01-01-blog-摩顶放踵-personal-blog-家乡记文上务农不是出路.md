@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 家乡记文上：务农不是出路
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 早上背上开始去皮，下午和晚上出了一点汗，开始大面积褪皮，一扯牵出一片。这是这趟回老家，家乡留给我的，上次这样整个背部褪皮大概是十几年前了，也是回老家晒得。老家留给我的还有两腿上近100个蚊子叮的“红包”，痒了数日不好，昨晚半夜腿上和背部痒得我要发疯，所以起来洗澡然后在腿上涂满风油精，穿上长裤以防手抓，方勉强睡着。老家原本就应该惩罚那些所谓“游子”，大概“游”走以后，是少有人回头来真正为穷困地区做些该做的，我所看到的大学里的农村孩子，更加关心能够在城市找到自己的位置，以便永远不在回去。
@@ -34,7 +32,6 @@ by horse in on @ 11:35 pm | [)
 
 2 留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
@@ -54,9 +51,6 @@ By twelve) on 08.19.05 12:31 pm
 我去年回的老家，今年不知道有没有时间了。还好，我们那里还有点变化，至少村村通水泥路，自来水等是实现了。宽带还没入户，隔壁一个乡倒是在2001年就实现宽带入户了。
 
 By doubleaf) on 08.20.05 8:50 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -177,7 +171,6 @@ recent comments
 thomas moore: Charles Jones: dustin drake: david bartrim: brian blanton: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

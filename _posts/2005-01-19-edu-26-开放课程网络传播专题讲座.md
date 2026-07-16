@@ -14,29 +14,18 @@ categories: [edu]
 
 重要页:
 
-订阅 
+Bloglines
 
-Bloglines订阅
-Newsgator订阅
+My Msn
 
-My Msn订阅
-My Yahoo订阅
+Rojo
 
-Rojo订阅
-gougou订阅
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 Edubeta
 
-
-分类：
-
 Uncategorized (25)
-
-存档文章：
 
 十月 2005 (1)
 九月 2005 (4)
@@ -75,7 +64,6 @@ zheng
 开放课程：网络传播专题讲座
 九月 19, 2005 on 6:37 pm | In Uncategorized | 
 
-
 参考1：
 
 通告：“正在变化中的互联网”网络传播专题讲座
@@ -86,8 +74,6 @@ zheng
 
 No Comments yet 
 »
-
-订阅此文章的留言RSS。 
 
 TrackBack URI
 

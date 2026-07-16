@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 买房慎重：房产投资开撤，房价稳或下降
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 前几日和做新闻的朋友聊天，受益非常之多，尤其是感到依然这么多优秀和有理想的新闻人存活着，就觉得温暖。当然，得知房价要下落的消息，更是高兴。
@@ -28,13 +26,9 @@ by horse in on @ 6:07 pm | [)
 
 无留言 so far
 
-
 [#postcomment](Leave a comment)
 
 )
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -151,7 +145,6 @@ recent comments
 biantaishabi: horse: 花小卷: 花小卷: renyang: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

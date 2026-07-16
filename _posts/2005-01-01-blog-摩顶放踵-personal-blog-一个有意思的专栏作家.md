@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 一个有意思的专栏作家
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 是一篇很有意思的文章，而且从趣味之中可以看到那些希望用一堆不知所以然的“规则”进行公司管理是多么愚蠢的一件事情。
@@ -19,7 +17,6 @@ by horse in on @ 4:41 pm | [)
 随机显示文章
 
 9 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -92,9 +89,6 @@ group建成：
 message的标题是乱码，内容倒还能看。:)
 
 By keepwalking) on 05.19.05 1:52 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -192,7 +186,6 @@ recent comments
 horse: Jian Shuo Wang: 花生: 鹤: Rocky: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

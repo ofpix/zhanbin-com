@@ -20,13 +20,11 @@ Entry Filed under:
 
 1.
 
-
 cathayan)  |  八月 16th, 2005 at 2:15 pm
 
 不错啊，尤其第一张，看到这个设计，真为那些建筑大师的作品汗颜。
 
 2.
-
 
 doubleaf)  |  八月 16th, 2005 at 3:12 pm
 
@@ -34,13 +32,11 @@ doubleaf)  |  八月 16th, 2005 at 3:12 pm
 
 3.
 
-
 biantaishabi)  |  八月 16th, 2005 at 8:41 pm
 
 赫赫，第一个房子看起来好像韶山的毛主席故居阿。
 
 4.
-
 
 horse)  |  八月 16th, 2005 at 10:04 pm
 
@@ -52,13 +48,11 @@ horse)  |  八月 16th, 2005 at 10:04 pm
 
 5.
 
-
 twelve)  |  八月 18th, 2005 at 7:18 pm
 
 房顶坡度不大，说明你家乡降雨并不太多。
 
 6.
-
 
 twelve)  |  八月 18th, 2005 at 7:22 pm
 
@@ -66,20 +60,17 @@ twelve)  |  八月 18th, 2005 at 7:22 pm
 
 7.
 
-
 horse)  |  八月 18th, 2005 at 10:14 pm
 
 坡度比较大啊，至少足够了，降雨较多。洞确实是猫狗进出用的，只是，算不上“宠物”……吧……呵呵
 
 8.
 
-
 twelve)  |  八月 18th, 2005 at 11:46 pm
 
 房子空着啊，那现在是否有“兔从狗窦入”了？
 
 9.
-
 
 horse)  |  八月 19th, 2005 at 8:50 am
 
@@ -97,14 +88,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

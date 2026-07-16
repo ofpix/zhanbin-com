@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩 顶 放 踵 ■ personal blog » 
 
-            
-
 对不起，没有文章匹配你的要求。
 
 网络害怕寂静，敬请留言或发表评论，以免惶恐不安
@@ -45,7 +43,6 @@ recent comments
 horse: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

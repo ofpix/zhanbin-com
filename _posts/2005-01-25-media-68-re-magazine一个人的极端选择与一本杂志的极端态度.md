@@ -4,18 +4,10 @@ date: 2005-01-25 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » Re-Magazine：一个人的极端选择与一本杂志的极端态度
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 Re-Magazine：一个人的极端选择与一本杂志的极端态度
-
 
 五月 25th, 2005
 
@@ -83,20 +75,17 @@ Q：你享受你的生活吗？你对未来是如何计划的？
 
 Jop van Bennekom：我现在很愉快，夏天到了，我有很多的出游计划。同时也有很多工作，我在考虑做一本关于Re-Magazine的书，新一期BUTT杂志，还有我在准备Fantastic Man杂志的第二期。在这些工作之余，我打算夏天去瑞士阿尔卑斯山徒步旅行——我现在对此十分期待。
 
-
 Entry Filed under: 杂志
 
 2 Comments Add your own
 
 1.
 
-
 cathayan  |  五月 26th, 2005 at 10:24 am
 
 詹师弟什么时候也做个杂志？可惜不自由。
 
 2.
-
 
 horse  |  五月 27th, 2005 at 10:21 am
 
@@ -116,9 +105,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -128,28 +114,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -159,9 +142,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

@@ -4,18 +4,10 @@ date: 2005-01-18 12:00:00 +0800
 categories: [media]
 ---
 
-■ 广泛传播 ■ media blog » 什么在约束我们？（一）认知不自由
-
-■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
-
-■ 广泛传播 ■ media blog
-
-首页
 广泛传播日报
-文章档案
+文章
 
 什么在约束我们？（一）认知不自由
-
 
 四月 18th, 2005
 
@@ -29,13 +21,11 @@ categories: [media]
 
 这样的理论提供了我们建构新的框架的可能，但是仍然不得不面对我们每个人头脑中现成的框架。而人如果希望获得认知的自由，那么就需要不断和自己头脑中既有的认知结构斗争。我们有曾想到，有如此的约束吗？
 
-
 Entry Filed under: 随便说说
 
 4 Comments Add your own
 
 1.
-
 
 文邹邹  |  四月 18th, 2005 at 10:26 pm
 
@@ -43,20 +33,17 @@ Entry Filed under: 随便说说
 
 2.
 
-
 horse  |  四月 19th, 2005 at 6:25 pm
 
 对～认知结构是必然存在的，而且是促进认知的，但是也可能约束认知。关键是要反过来思考自己的认知结构
 
 3.
 
-
 Aether  |  四月 23rd, 2005 at 2:29 pm
 
 似乎又扯到康德去了……真是太远了……
 
 4.
-
 
 ■ 广 泛 传 播 ■ m&hellip  |  四月 24th, 2005 at 1:46 pm
 
@@ -76,9 +63,6 @@ Comment
 
 Some HTML allowed:
 
-
-Trackback this post  |  Subscribe to the comments via RSS Feed
-
 第一次来本站？
 
 信息台
@@ -88,28 +72,25 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 Rss加油站
 BlogBeta：高质量群组blog支持计划
 
-订阅 
+Bloglines
 
-Bloglines订阅
+Newsgator
 
-Newsgator订阅
+My Msn
 
-My Msn订阅
+My Yahoo
 
-My Yahoo订阅
+Rojo
 
-Rojo订阅
+gougou
 
-gougou订阅
+周博通
 
-周博通订阅
-
-博阅订阅
+博阅
 
 广告:
 
 Most Recent Posts
-
 
 美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -119,9 +100,6 @@ Most Recent Posts
 评globehr新版：职业搜索也要社会性
 精英写blog＝精英落草
 统计数据：Technorati描述的blogosphere
-Feedburner强化对Yahoo! Podcasts的支持
-Audacity没有保存.aup怎办？
-
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
 ■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education

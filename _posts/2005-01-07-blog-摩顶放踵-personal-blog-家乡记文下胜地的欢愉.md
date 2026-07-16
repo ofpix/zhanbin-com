@@ -26,7 +26,6 @@ Entry Filed under:
 
 1.
 
-
 biantaishabi)  |  九月 8th, 2005 at 9:14 am
 
 还是你们这里比较好。我这次回家都是在游泳池里面游泳，其实有过去湘江游泳得念头，但是那里面得水已经连鱼都快受不了拉。
@@ -34,7 +33,6 @@ biantaishabi)  |  九月 8th, 2005 at 9:14 am
 去桂林得时候看到那里得小孩倒是很勇敢的在很脏的漓江里面游泳。
 
 2.
-
 
 小谢)  |  九月 11th, 2005 at 2:59 pm
 
@@ -52,14 +50,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

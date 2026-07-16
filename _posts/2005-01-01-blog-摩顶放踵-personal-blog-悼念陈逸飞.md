@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 悼念陈逸飞
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 的消息是amei电话和我说的，随后看到了相关新闻，当时没有什么反应。
@@ -25,7 +23,6 @@ by horse in on @ 9:56 pm | [)
 随机显示文章
 
 3 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -56,9 +53,6 @@ By Ricci on 04.13.05 8:40 am
 陈逸飞,原来我一直都不太喜欢他,他的油画作品我不喜欢,我个人觉得是没有什么思想,题材老套,表现没有感染力,能出名的原因-很大程度上与政治挂上了钩,一个政治画家!!!!
 
 By LA on 04.21.05 8:15 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -177,7 +171,6 @@ recent comments
 biantaishabi: horse: 花小卷: 花小卷: renyang: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 

@@ -12,7 +12,6 @@ categories: [blog]
 
 有了不少垃圾留言，一直没有舍得删除……因为：看得人实在是太心花怒放了。今天决定都删除掉，copy一些下来让大家一乐，他们比国内的那些垃圾SEO们要敬业得多。摘录如下：
 
-
 * HI, Wow.. this is a very informative website! I enjoy your site very much! Keep up the good work! Casinos en ligne
 
 * Now there is the internet. And I really appreciate people like you who take their chance in such an excellent …
@@ -36,13 +35,11 @@ Entry Filed under:
 
 1.
 
-
 wangwenyou)  |  四月 25th, 2005 at 11:45 am
 
 Spam的一种境界，先拍，然后绕，最后再说正题，干什么都要敬业：）
 
 2.
-
 
 horse)  |  四月 25th, 2005 at 2:18 pm
 
@@ -50,13 +47,11 @@ horse)  |  四月 25th, 2005 at 2:18 pm
 
 3.
 
-
 twelve)  |  四月 25th, 2005 at 3:35 pm
 
 千穿万穿，马屁不穿
 
 4.
-
 
 rob  |  四月 25th, 2005 at 4:55 pm
 
@@ -66,20 +61,17 @@ example.com好，谢了！
 
 5.
 
-
 horse)  |  四月 25th, 2005 at 7:01 pm
 
 不太清楚啊…但是www.是不是正规一些
 
 6.
 
-
  |  四月 27th, 2005 at 5:16 pm
 
 […] 最受欢迎的两个插件，不过我比较幸运，一直没有遇到horse那么多的垃圾留言，只是在最近才刚刚装上新出来的插件Bad Behavior，因为这个插件是通 […]
 
 7.
-
 
 zhy  |  五月 22nd, 2005 at 4:58 pm
 
@@ -97,14 +89,11 @@ Comment
 
 Some HTML allowed:
 
-
  |  Subscribe to the comments via RSS Feed)
 
 本故事纯属虚构，切勿对号入座
 
 信息台
-
-订阅 [)
 
 [)
 

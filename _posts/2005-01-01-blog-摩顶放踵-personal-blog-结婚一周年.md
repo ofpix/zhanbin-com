@@ -6,8 +6,6 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 结婚一周年
 
-            
-
 敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
 很愉快，感情越来越好！
@@ -19,7 +17,6 @@ by horse in on @ 12:11 pm | [)
 随机显示文章
 
 8 留言 so far
-
 
 [#postcomment](Leave a comment)
 
@@ -82,9 +79,6 @@ By Rocky) on 07.09.05 11:25 am
 祝福你！好好享受生活！
 
 By 与博阅在一起) on 07.09.05 2:52 pm 
-
-订阅此文章的留言RSS。) 
-
 
 )
 写留言
@@ -189,7 +183,6 @@ recent comments
 miSh1 » Olympic ？flood!xinhuanet.com: 与博阅在一起: Rocky: biantaishabi: 丽香: 
 
 Except noted, this site is licensed under a 
-
 
 Powered by [wordpress.org](wordpress). Theme based on 
 
