@@ -1,7 +1,7 @@
 ---
 title: "从blog开始，享受我的互联网——盘点2004"
 date: 2004-01-25 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

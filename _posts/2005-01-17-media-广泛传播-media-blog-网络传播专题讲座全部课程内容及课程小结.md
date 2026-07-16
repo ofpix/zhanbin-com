@@ -1,7 +1,7 @@
 ---
 title: "网络传播专题讲座全部课程内容及课程小结"
 date: 2005-01-17 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 Bloglines

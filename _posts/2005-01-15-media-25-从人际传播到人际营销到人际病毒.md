@@ -1,7 +1,7 @@
 ---
 title: "从人际传播到人际营销到人际病毒"
 date: 2005-01-15 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

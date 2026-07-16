@@ -1,7 +1,7 @@
 ---
 title: "ESOPUS：一个人的杂志"
 date: 2004-01-10 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

@@ -1,7 +1,7 @@
 ---
 title: "UUzone，不回头"
 date: 2005-01-20 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 Bloglines

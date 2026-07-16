@@ -1,7 +1,7 @@
 ---
 title: "Blog、CMS与网站内容的组织"
 date: 2005-01-07 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

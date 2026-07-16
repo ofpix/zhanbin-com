@@ -1,7 +1,7 @@
 ---
 title: "五道口春秋书店半价甩书"
 date: 2005-01-22 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

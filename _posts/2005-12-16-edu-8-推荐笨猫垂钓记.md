@@ -1,7 +1,7 @@
 ---
 title: "推荐：笨猫垂钓记"
 date: 2005-12-16 12:00:00 +0800
-categories: [edu]
+categories: [教育]
 ---
 
 ■ 詹膑 ■ Homepage » 推荐：笨猫垂钓记

@@ -1,7 +1,7 @@
 ---
 title: "现在是吃基围虾的好时候"
 date: 2005-01-02 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

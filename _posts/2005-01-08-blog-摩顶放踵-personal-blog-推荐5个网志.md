@@ -1,7 +1,7 @@
 ---
 title: "推荐5个网志"
 date: 2005-01-08 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

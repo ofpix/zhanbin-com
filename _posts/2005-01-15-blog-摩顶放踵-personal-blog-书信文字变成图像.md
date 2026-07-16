@@ -1,7 +1,7 @@
 ---
 title: "书信：文字变成图像"
 date: 2005-01-15 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

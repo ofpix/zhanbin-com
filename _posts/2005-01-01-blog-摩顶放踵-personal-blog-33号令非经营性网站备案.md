@@ -1,7 +1,7 @@
 ---
 title: "33号令：非经营性网站备案"
 date: 2005-01-01 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

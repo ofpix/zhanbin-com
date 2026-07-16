@@ -1,7 +1,7 @@
 ---
 title: "门户、个人门户"
 date: 2005-01-13 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

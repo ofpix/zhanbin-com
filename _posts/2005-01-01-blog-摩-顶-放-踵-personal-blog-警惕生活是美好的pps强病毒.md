@@ -1,7 +1,7 @@
 ---
 title: "■ 摩 顶 放 踵 ■ personal blog » 警惕“生活是美好的.pps”强病毒"
 date: 2005-01-01 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 ■ 摩 顶 放 踵 ■ personal blog » 警惕“生活是美好的.pps”强病毒

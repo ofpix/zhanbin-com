@@ -1,7 +1,7 @@
 ---
 title: "什么在约束我们？（五）涵化（培养）"
 date: 2005-01-23 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

@@ -1,7 +1,7 @@
 ---
 title: "看的让人心花怒放的垃圾留言（spam）"
 date: 2005-01-25 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

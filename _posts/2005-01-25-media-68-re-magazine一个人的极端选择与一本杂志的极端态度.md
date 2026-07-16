@@ -1,7 +1,7 @@
 ---
 title: "Re-Magazine：一个人的极端选择与一本杂志的极端态度"
 date: 2005-01-25 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

@@ -1,7 +1,7 @@
 ---
 title: "QQ也有好用的地方，有时候还不得不用"
 date: 2005-01-21 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

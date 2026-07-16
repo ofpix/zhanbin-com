@@ -1,7 +1,7 @@
 ---
 title: "家乡图记5：池塘和池塘边"
 date: 2005-01-18 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

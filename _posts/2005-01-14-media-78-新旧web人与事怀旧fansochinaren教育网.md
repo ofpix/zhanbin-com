@@ -1,7 +1,7 @@
 ---
 title: "新旧web人与事：怀旧、Fanso、Chinaren、教育网"
 date: 2005-01-14 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

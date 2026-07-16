@@ -1,7 +1,7 @@
 ---
 title: "SIXOSIX：以杂志自娱自乐"
 date: 2005-06-01 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 ■ 广 泛 传 播 ■ media blog » SIXOSIX：以杂志自娱自乐

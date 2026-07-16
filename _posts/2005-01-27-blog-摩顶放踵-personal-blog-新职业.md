@@ -1,7 +1,7 @@
 ---
 title: "新职业"
 date: 2005-01-27 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

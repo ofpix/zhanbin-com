@@ -1,7 +1,7 @@
 ---
 title: "人去楼空"
 date: 2005-08-17 12:00:00 +0800
-categories: [tag]
+categories: [博客]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_35"
 ---
 

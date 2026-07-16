@@ -1,7 +1,7 @@
 ---
 title: "家乡记文中：寂寥与繁茂"
 date: 2005-01-06 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

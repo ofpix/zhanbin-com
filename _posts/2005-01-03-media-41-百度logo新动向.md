@@ -1,7 +1,7 @@
 ---
 title: "百度logo新动向"
 date: 2005-01-03 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

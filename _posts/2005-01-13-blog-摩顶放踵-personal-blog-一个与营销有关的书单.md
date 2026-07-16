@@ -1,7 +1,7 @@
 ---
 title: "一个与“营销”有关的书单"
 date: 2005-01-13 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

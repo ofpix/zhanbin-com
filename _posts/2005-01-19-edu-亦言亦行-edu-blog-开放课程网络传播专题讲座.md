@@ -1,7 +1,7 @@
 ---
 title: "开放课程：网络传播专题讲座"
 date: 2005-01-19 12:00:00 +0800
-categories: [edu]
+categories: [教育]
 ---
 
 ■ 亦言亦行 ■ edu blog » 开放课程：网络传播专题讲座

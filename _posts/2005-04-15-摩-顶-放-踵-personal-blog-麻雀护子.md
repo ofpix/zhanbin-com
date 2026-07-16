@@ -1,7 +1,7 @@
 ---
 title: "■ 摩 顶 放 踵 ■ personal blog » 麻雀护子"
 date: 2005-04-15 12:00:00 +0800
-categories: [tag]
+categories: [博客]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_27"
 ---
 

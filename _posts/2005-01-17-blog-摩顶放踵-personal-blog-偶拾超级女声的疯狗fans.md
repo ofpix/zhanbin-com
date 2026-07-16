@@ -1,7 +1,7 @@
 ---
 title: "偶拾：超级女声的“疯狗”Fans"
 date: 2005-01-17 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

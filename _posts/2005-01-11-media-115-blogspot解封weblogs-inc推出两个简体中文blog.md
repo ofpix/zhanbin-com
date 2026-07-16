@@ -1,7 +1,7 @@
 ---
 title: "Blogspot解封，Weblogs Inc.推出两个简体中文blog"
 date: 2005-01-11 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

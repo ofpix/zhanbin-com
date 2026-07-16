@@ -1,7 +1,7 @@
 ---
 title: "清华校长的丑与应该被舆论监督的清华"
 date: 2005-01-15 12:00:00 +0800
-categories: [tag]
+categories: [博客]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_38"
 ---
 

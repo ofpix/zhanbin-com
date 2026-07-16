@@ -1,7 +1,7 @@
 ---
 title: "关于年会演讲的ppt"
 date: 2005-01-07 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

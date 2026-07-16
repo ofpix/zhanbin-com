@@ -1,7 +1,7 @@
 ---
 title: "家乡图记2：老屋"
 date: 2005-01-16 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

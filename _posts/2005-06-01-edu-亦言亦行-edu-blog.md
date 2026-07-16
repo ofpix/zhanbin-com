@@ -1,7 +1,7 @@
 ---
-title: "■ 亦言亦行 ■ edu blog"
+title: "亦言亦行"
 date: 2005-06-01 12:00:00 +0800
-categories: [edu]
+categories: [教育]
 ---
 
 ■ 亦言亦行 ■ edu blog

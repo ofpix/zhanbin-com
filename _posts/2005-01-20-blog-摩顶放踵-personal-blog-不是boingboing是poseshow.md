@@ -1,7 +1,7 @@
 ---
 title: "不是boingboing，是poseshow"
 date: 2005-01-20 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

@@ -1,7 +1,7 @@
 ---
 title: "为什么广告、营销和公关的专业人员应该blog"
 date: 2005-01-16 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

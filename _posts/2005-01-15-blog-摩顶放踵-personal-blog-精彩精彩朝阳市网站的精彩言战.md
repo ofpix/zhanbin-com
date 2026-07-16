@@ -1,7 +1,7 @@
 ---
 title: "精彩！精彩！朝阳市网站的精彩言战"
 date: 2005-01-15 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

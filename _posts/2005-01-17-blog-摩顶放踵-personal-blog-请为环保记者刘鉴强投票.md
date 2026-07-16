@@ -1,7 +1,7 @@
 ---
 title: "请为环保记者刘鉴强投票"
 date: 2005-01-17 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

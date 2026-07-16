@@ -1,7 +1,7 @@
 ---
 title: "paypal中国版本上线"
 date: 2005-01-10 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

@@ -1,7 +1,7 @@
 ---
 title: "blog：互联网和你、入口和界面"
 date: 2004-01-26 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 广泛传播日报

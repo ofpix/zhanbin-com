@@ -1,7 +1,7 @@
 ---
 title: "求助，关于php与空间问题"
 date: 2005-01-29 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

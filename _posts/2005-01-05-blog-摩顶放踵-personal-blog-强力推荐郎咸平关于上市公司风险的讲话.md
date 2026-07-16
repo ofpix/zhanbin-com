@@ -1,7 +1,7 @@
 ---
 title: "强力推荐！郎咸平关于上市公司风险的讲话"
 date: 2005-01-05 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

@@ -1,7 +1,7 @@
 ---
 title: "q-zone，年轻人的game"
 date: 2005-01-06 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

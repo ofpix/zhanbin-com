@@ -1,7 +1,7 @@
 ---
 title: "校园"
 date: 2005-01-01 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

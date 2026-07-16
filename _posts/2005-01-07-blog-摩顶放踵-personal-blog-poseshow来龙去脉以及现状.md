@@ -1,7 +1,7 @@
 ---
 title: "poseshow来龙去脉以及现状"
 date: 2005-01-07 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

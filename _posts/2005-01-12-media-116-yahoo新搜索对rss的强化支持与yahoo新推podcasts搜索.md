@@ -1,7 +1,7 @@
 ---
 title: "Yahoo!新搜索对Rss的强化支持与Yahoo新推Podcasts搜索"
 date: 2005-01-12 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

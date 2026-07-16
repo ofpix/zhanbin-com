@@ -1,7 +1,7 @@
 ---
 title: "中文网志年会web2.0演讲ppt下载"
 date: 2005-01-09 12:00:00 +0800
-categories: [media]
+categories: [传媒]
 ---
 
 欢迎在文后发表评论

@@ -1,7 +1,7 @@
 ---
 title: "《娱乐至上：体验经济时代的商业秀》"
 date: 2005-01-20 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

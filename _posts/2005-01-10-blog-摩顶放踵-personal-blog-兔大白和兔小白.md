@@ -1,7 +1,7 @@
 ---
 title: "▲兔大白和兔小白"
 date: 2005-01-10 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

@@ -1,7 +1,7 @@
 ---
 title: "雕刻时光：8年与7年"
 date: 2005-01-29 12:00:00 +0800
-categories: [tag]
+categories: [博客]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_100"
 ---
 

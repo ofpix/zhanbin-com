@@ -1,7 +1,7 @@
 ---
 title: "买房慎重：房产投资开撤，房价稳或下降"
 date: 2005-01-01 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

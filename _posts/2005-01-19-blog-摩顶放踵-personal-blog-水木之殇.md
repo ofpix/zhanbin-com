@@ -1,7 +1,7 @@
 ---
 title: "水木之殇"
 date: 2005-01-19 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

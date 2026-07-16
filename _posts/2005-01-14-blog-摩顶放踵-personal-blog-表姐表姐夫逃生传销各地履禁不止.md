@@ -1,7 +1,7 @@
 ---
 title: "表姐表姐夫“逃生”，传销各地履禁不止"
 date: 2005-01-14 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

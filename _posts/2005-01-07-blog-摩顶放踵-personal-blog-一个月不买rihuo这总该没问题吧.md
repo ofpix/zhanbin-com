@@ -1,7 +1,7 @@
 ---
 title: "一个月不买rihuo，这，总该没问题吧"
 date: 2005-01-07 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

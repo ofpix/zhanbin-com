@@ -1,7 +1,7 @@
 ---
 title: "安全套、书店和鞋店"
 date: 2005-01-11 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 

@@ -1,7 +1,7 @@
 ---
 title: "想做那个懒汉……"
 date: 2005-01-07 12:00:00 +0800
-categories: [blog]
+categories: [博客]
 ---
 
 
