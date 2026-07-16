@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 一个有意思的专栏作家"
+title: "一个有意思的专栏作家"
 date: 2005-01-01 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 一个有意思的专栏作家
 
@@ -190,3 +191,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

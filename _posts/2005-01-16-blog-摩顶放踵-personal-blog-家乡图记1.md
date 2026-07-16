@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 家乡图记1"
+title: "家乡图记1"
 date: 2005-01-16 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 家乡图记1
 
@@ -64,3 +65,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

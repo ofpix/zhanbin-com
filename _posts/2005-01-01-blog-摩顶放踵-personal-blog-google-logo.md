@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » google logo"
+title: "google logo"
 date: 2005-01-01 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » google logo
 
@@ -134,3 +135,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

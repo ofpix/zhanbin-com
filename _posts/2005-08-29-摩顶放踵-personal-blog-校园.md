@@ -1,9 +1,10 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 校园"
+title: "校园"
 date: 2005-08-29 12:00:00 +0800
 categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_23"
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 校园
 ■ 摩顶放踵 ■ personal blog
@@ -22,3 +23,4 @@ Leave a comment
 By 老婆 on 04.06.05 5:33 pm
 校园还是单纯点最好了
 By asiapan on 04.06.05 7:09 pm
+

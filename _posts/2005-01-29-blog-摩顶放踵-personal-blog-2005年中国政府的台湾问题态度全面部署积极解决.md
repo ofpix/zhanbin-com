@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 2005年，中国政府的台湾问题态度：全面部署，积极解决"
+title: "2005年，中国政府的台湾问题态度：全面部署，积极解决"
 date: 2005-01-29 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 2005年，中国政府的台湾问题态度：全面部署，积极解决
 
@@ -78,3 +79,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

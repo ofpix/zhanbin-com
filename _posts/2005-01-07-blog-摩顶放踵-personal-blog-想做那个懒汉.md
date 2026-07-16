@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 想做那个懒汉……"
+title: "想做那个懒汉……"
 date: 2005-01-07 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 想做那个懒汉……
 
@@ -96,3 +97,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

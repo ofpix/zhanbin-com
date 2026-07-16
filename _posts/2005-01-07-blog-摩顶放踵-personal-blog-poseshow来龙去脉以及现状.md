@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » poseshow来龙去脉以及现状"
+title: "poseshow来龙去脉以及现状"
 date: 2005-01-07 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » poseshow来龙去脉以及现状
 
@@ -87,3 +88,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

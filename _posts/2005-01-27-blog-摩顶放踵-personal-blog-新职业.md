@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 新职业"
+title: "新职业"
 date: 2005-01-27 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 新职业
 
@@ -69,3 +70,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

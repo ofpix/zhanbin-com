@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 家乡记文下：胜地的欢愉"
+title: "家乡记文下：胜地的欢愉"
 date: 2005-01-07 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 家乡记文下：胜地的欢愉
 
@@ -68,3 +69,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

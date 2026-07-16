@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 买房慎重：房产投资开撤，房价稳或下降"
+title: "买房慎重：房产投资开撤，房价稳或下降"
 date: 2005-01-01 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 买房慎重：房产投资开撤，房价稳或下降
 
@@ -149,3 +150,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

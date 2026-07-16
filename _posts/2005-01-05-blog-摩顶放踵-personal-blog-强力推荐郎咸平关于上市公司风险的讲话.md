@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 强力推荐！郎咸平关于上市公司风险的讲话"
+title: "强力推荐！郎咸平关于上市公司风险的讲话"
 date: 2005-01-05 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 强力推荐！郎咸平关于上市公司风险的讲话
 
@@ -44,3 +45,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

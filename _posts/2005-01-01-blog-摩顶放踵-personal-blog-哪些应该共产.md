@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 哪些应该共产？"
+title: "哪些应该共产？"
 date: 2005-01-01 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 哪些应该共产？ 
 
@@ -157,3 +158,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

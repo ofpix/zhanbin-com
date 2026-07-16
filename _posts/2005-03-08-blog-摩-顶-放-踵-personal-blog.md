@@ -1,8 +1,9 @@
 ---
-title: "■ 摩 顶 放 踵 ■ personal blog »"
+title: "■ 摩 顶 放 踵 ■ personal blog"
 date: 2005-03-08 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩 顶 放 踵 ■ personal blog » 
 
@@ -47,3 +48,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

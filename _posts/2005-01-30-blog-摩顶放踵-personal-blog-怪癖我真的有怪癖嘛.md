@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 怪癖：我真的有怪癖嘛？"
+title: "怪癖：我真的有怪癖嘛？"
 date: 2005-01-30 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 怪癖：我真的有怪癖嘛？
 
@@ -98,3 +99,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

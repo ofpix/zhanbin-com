@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 清华校长的丑与应该被舆论监督的清华"
+title: "清华校长的丑与应该被舆论监督的清华"
 date: 2005-01-15 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 清华校长的丑与应该被舆论监督的清华
 
@@ -144,3 +145,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

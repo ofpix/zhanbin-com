@@ -1,9 +1,10 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 清华校长的丑与应该被舆论监督的清华"
+title: "清华校长的丑与应该被舆论监督的清华"
 date: 2005-01-15 12:00:00 +0800
 categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_38"
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 清华校长的丑与应该被舆论监督的清华
 ■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
@@ -82,3 +83,4 @@ Trackback this post  |  Subscribe to the comments via RSS Feed
 最佳财经观察Blog
 王正鹏·财经夜谭
 BlogBeta：高质量群组blog支持计划
+

@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » ▲兔大白和兔小白"
+title: "▲兔大白和兔小白"
 date: 2005-01-10 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » ▲兔大白和兔小白
 
@@ -94,3 +95,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

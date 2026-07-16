@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 偶拾：超级女声的“疯狗”Fans"
+title: "偶拾：超级女声的“疯狗”Fans"
 date: 2005-01-17 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 偶拾：超级女声的“疯狗”Fans
 
@@ -44,3 +45,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

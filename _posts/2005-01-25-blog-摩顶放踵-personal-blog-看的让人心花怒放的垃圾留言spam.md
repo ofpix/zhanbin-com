@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 看的让人心花怒放的垃圾留言（spam）"
+title: "看的让人心花怒放的垃圾留言（spam）"
 date: 2005-01-25 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 看的让人心花怒放的垃圾留言（spam）
 
@@ -107,3 +108,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

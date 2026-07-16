@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 《娱乐至上：体验经济时代的商业秀》"
+title: "《娱乐至上：体验经济时代的商业秀》"
 date: 2005-01-20 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 《娱乐至上：体验经济时代的商业秀》
 
@@ -136,3 +137,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

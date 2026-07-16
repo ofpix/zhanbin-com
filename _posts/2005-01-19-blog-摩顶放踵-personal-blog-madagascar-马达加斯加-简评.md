@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » Madagascar 马达加斯加 简评"
+title: "Madagascar 马达加斯加 简评"
 date: 2005-01-19 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » Madagascar 马达加斯加 简评
 
@@ -66,3 +67,4 @@ Most Recent Posts
 © Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
 Design based on Theme by . Powered by .
+

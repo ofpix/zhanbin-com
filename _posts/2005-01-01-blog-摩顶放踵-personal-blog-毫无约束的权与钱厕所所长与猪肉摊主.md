@@ -1,8 +1,9 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主"
+title: "毫无约束的“权”与“钱”——厕所所长与猪肉摊主"
 date: 2005-01-01 12:00:00 +0800
 categories: [blog]
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主
 
@@ -191,3 +192,4 @@ Except noted, this site is licensed under a
 Powered by [wordpress.org](wordpress). Theme based on 
 
 [)
+

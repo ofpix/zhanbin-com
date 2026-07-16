@@ -1,9 +1,10 @@
 ---
-title: "■ 摩顶放踵 ■ personal blog » 人去楼空"
+title: "人去楼空"
 date: 2005-08-17 12:00:00 +0800
 categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_35"
 ---
+
 
 ■ 摩顶放踵 ■ personal blog » 人去楼空
 ■ 摩顶放踵 ■ personal blog
@@ -29,3 +30,4 @@ By horse on 04.29.05 10:32 pm
 By twelve on 04.30.05 11:28 am
 我工作很忙了一段,基本上远离水木了,才发现有这么多变化,又才发现真的需要一个论坛,一个闲下来时能写几段文字,又能有朋友阅读的地方,只收到horse的信,知道有blog这东西,可是以前的朋友都不知道到哪去了.
 By liuyuefly on 05.14.05 10:07 am
+
