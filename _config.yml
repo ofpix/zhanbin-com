@@ -9,7 +9,7 @@ url: "https://ofpix.github.io/zhanbin-com"
 baseurl: "/zhanbin-com"
 
 # Theme
-theme: chirpy
+theme: jekyll-theme-chirpy
 
 # Language
 lang: zh-CN
