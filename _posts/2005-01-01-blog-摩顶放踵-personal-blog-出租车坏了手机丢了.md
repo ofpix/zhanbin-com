@@ -6,147 +6,77 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 出租车坏了，手机丢了
 
-	
+            
 
-[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
-[http://www.zhanbin.com](首页)    [http://blog.zhanbin.com](!个人)    [http://media.zhanbin.com](传播)    [http://edu.zhanbin.com](教育)    [http://www.zhanbin.com/](联系)
+敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
-  
-    
-	 [http://blog.zhanbin.com/index.php/10.html](
-	 出租车坏了，手机丢了)
-    
+昨晚晚归，打的，夏利颠啊颠地往回龙观走。票一直自己不停地打…开了一段停下，修理打票的机器。继续走，一个红灯处，司机打开门整了半天他那边的车门，光当当像要掉的样子…继续走。又一个红灯处，转绿灯，开车，下面哗啦啦地响…下去看，回来，车开不动了。帮他推到路一边…下面掉下来一个不小的部件。给了10元钱…狂同情，大半夜的，怎么办啊？还是一个看上去老实巴交的小伙子。转乘富康，说夏利的车基本上全部是5、6年以上，均属超龄服役，建议以后坐富康。
 
-	
-	[http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)敬请在文末发表评论，留下您的意见  [javascript:StorePage()]([收藏此页365key])
-	
+关于出租车的事情，一直以来都有讨论，出租车司机受到的多种盘剥，出租车公司的暴力，行政垄断性地批复，个人没法自办出租等等，才导致了路面上这么多超龄服役的夏利。这个事情不知道什么时候才能解决。新的索纳塔已经很多上市运行了，富康降价可能性很大而且可能很快，夏利估计应该彻底淘汰了吧…那些司机估计又有新麻烦吧。我是强烈反对出租车行业垄断性经营的，而且这种经营是在出租车公司暴利，司机受到盘剥，出租车不负任何责任还用狂烂的破车赚取4k、5k的月租……这帮…（此处省略脏话若干）
 
-	         
-	
-      		昨晚晚归，打的，夏利颠啊颠地往回龙观走。票一直自己不停地打…开了一段停下，修理打票的机器。继续走，一个红灯处，司机打开门整了半天他那边的车门，光当当像要掉的样子…继续走。又一个红灯处，转绿灯，开车，下面哗啦啦地响…下去看，回来，车开不动了。帮他推到路一边…下面掉下来一个不小的部件。给了10元钱…狂同情，大半夜的，怎么办啊？还是一个看上去老实巴交的小伙子。转乘富康，说夏利的车基本上全部是5、6年以上，均属超龄服役，建议以后坐富康。
+发现一个手机掉了…由于手机号变更，一直两个手机并用——我太懒了，这样不用通知所有人我手机号变更了，同时因为我懒，导致旧手机里面的号码转到新手机的十分少…晕菜。今天中午按照的票上的电话打到出租车公司，迄今没有音讯。
 
-	关于出租车的事情，一直以来都有讨论，出租车司机受到的多种盘剥，出租车公司的暴力，行政垄断性地批复，个人没法自办出租等等，才导致了路面上这么多超龄服役的夏利。这个事情不知道什么时候才能解决。新的索纳塔已经很多上市运行了，富康降价可能性很大而且可能很快，夏利估计应该彻底淘汰了吧…那些司机估计又有新麻烦吧。我是强烈反对出租车行业垄断性经营的，而且这种经营是在出租车公司暴利，司机受到盘剥，出租车不负任何责任还用狂烂的破车赚取4k、5k的月租……这帮…（此处省略脏话若干）
-
-	发现一个手机掉了…由于手机号变更，一直两个手机并用——我太懒了，这样不用通知所有人我手机号变更了，同时因为我懒，导致旧手机里面的号码转到新手机的十分少…晕菜。今天中午按照的票上的电话打到出租车公司，迄今没有音讯。
-
-    
-    
-    
-    
-      by horse in [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized) on [http://blog.zhanbin.com/index.php/10.html](03.08.05) @ 7:30 pm | [http://blog.zhanbin.com/index.php/10.html#comments]()
-    
-
-  
+by horse in on @ 7:30 pm | [)
 
 随机显示文章
 
-[http://blog.zhanbin.com/index.php/46.html](为农村带去什么？)[http://blog.zhanbin.com/index.php/42.html](看我blog的人有大款吗？……做做公益吧？)[http://blog.zhanbin.com/index.php/60.html](想做那个懒汉……)[http://blog.zhanbin.com/index.php/7.html](民工的电视剧与民工的节日)[http://blog.zhanbin.com/index.php/11.html](没房没车只有blog)
-
 无留言 so far
 
- 
+
 [#postcomment](Leave a comment)
 
 )
 
 订阅此文章的留言RSS。) 
-	[http://blog.zhanbin.com/index.php/10.html/trackback/](TrackBack URI)
+
 
 )
 写留言
 
-自动分行和段，email也不会显示出来，允许的HTML标签： <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
+自动分行和段，email也不会显示出来，允许的HTML标签： 
 
-	
-	  
-	   名字 （必须）	
-	
-	
+名字 （必须）	
 
-	
-	  
-	   E-mail （必须）	
+E-mail （必须）	
 
-	
-	  
-	   URI
-	
+URI
 
-	
-	  你的留言
-	
-
-	  
-	
-
-	
-	  
-	
-
-	
-
- 
- 
-
-    
-
-  
- 
- 
+你的留言
 
 function StorePage()
 {
-        d=document;
-        t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
-        void(keyit=window.open('http://www.365key.com/storeit.aspx?t='+escape(d.title)+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
-        keyit.focus();
+d=document;
+t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
+void(keyit=window.open(')+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
+keyit.focus();
 }
- 
-
-  
-  
-  
-
-  
 
 加“摩顶放踵”到收藏夹)
 
-[http://feeds.feedburner.com/zhanbin](订阅本站)
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
-
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-[http://media.zhanbin.com](广泛传播：关于互联网与传媒的专业blog)
-
 网络害怕寂静，敬请留言或发表评论，以免惶恐不安
 
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：分类广告站、社区、地域性网站)
+（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)关于rss博览是否侵权的一点补充)新旧web人与事：分类广告站、社区、地域性网站)
 
 Categories
 
-	All
-	Uncategorized
+All
+Uncategorized
 
 Archives
 
 Archives by Month
-	 八月 2005 
-	 七月 2005 
-	 六月 2005 
-	 五月 2005 
-	 四月 2005 
-	 三月 2005 
-	 二月 2005 
-	 十一月 2004 
-	 八月 2004 
-
-  
+八月 2005 
+七月 2005 
+六月 2005 
+五月 2005 
+四月 2005 
+三月 2005 
+二月 2005 
+十一月 2004 
+八月 2004 
 
 Search
 
-  
-    
 Blogroll
 *服装产业观察)
 
@@ -196,39 +126,24 @@ taras·秦轩的BLOG)
 
 黄集伟·孤岛客)
 
- 
-
 syndicate
-[http://feeds.feedburner.com/zhanbin](订阅本站)
 
-[http://feeds.feedburner.com/zhanbin](Syndicate this site)
+[)
 
-[http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin&tt=CENTRALDIRECTORY&ru=http://rss.msn.com']()
-
-[http://feeds.feedburner.com/zhanbin]()     
-
-  
+[) 
 
 recent comments
-BLOG家园: [http://blog.zhanbin.com/index.php/70.html#comment-521](怪僻接力
+BLOG家园: hairuo: hairuo: doubleaf: horse: 
 
-最近几天出去开会，...)hairuo: [http://blog.zhanbin.com/index.php/63.html#comment-501](一直也想拍一下老家的整个地...)hairuo: [http://blog.zhanbin.com/index.php/63.html#comment-500](很不错，这几年每次回家也才...)doubleaf: [http://blog.zhanbin.com/index.php/69.html#comment-488](我去年回的老家，今年不知道...)horse: [http://blog.zhanbin.com/index.php/67.html#comment-486](堂兄开车回...)
+Except noted, this site is licensed under a 
 
-  
-    
-[http://creativecommons.org/licenses/by-nc-sa/2.0/](
-    )
-    Except noted, this site is licensed under a [http://creativecommons.org/licenses/by-nc-sa/2.0/](Creative Commons License)
-  
 
-Powered by [wordpress.org](wordpress). Theme based on [http://www.thoughtmechanics.com/blog/2005/02/18/not-so-minima/](MinimaPlus)
+Powered by [wordpress.org](wordpress). Theme based on 
 
-[http://www.zhanbin.com/index.php/hosting](！选择神话网络作为你的域名和虚拟空间服务商)
-
-[http://www.statcounter.com/]()
+[)

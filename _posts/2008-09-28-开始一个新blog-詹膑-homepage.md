@@ -1,10 +1,9 @@
 ---
-title: "开始一个新blog …… : ■ 詹膑 ■ Homepage"
+title: "开始一个新blog ……"
 date: 2008-09-28 12:00:00 +0800
 categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/477"
 ---
-
 
 开始一个新blog …… : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -104,7 +103,7 @@ Make Money Fast - Work At Home
 Chinese Restaurants
 让网络来得更生猛吧！今晚大家来奇遇花园咖啡馆看《the jerk》吧
 开始一个新blog ……
-http://zhanbin.com
+
 写些相对专业一点的东西。
 欢迎捧场……别忘了订阅新的RSS ……
 这里将会变成一个更加随意和私人的地方

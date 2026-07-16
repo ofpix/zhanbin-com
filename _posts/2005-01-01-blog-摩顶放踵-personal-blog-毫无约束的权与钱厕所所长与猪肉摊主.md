@@ -6,74 +6,48 @@ categories: [blog]
 
 ■ 摩顶放踵 ■ personal blog » 毫无约束的“权”与“钱”——厕所所长与猪肉摊主
 
-	
+            
 
-[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
-[http://www.zhanbin.com](首页)    [http://blog.zhanbin.com](!个人)    [http://media.zhanbin.com](传播)    [http://edu.zhanbin.com](教育)    [http://www.zhanbin.com/](联系)
+敬请在文末发表评论，留下您的意见 [javascript:StorePage()]([收藏此页365key])
 
-  
-    
-	 [http://blog.zhanbin.com/index.php/29.html](
-	 毫无约束的“权”与“钱”——厕所所长与猪肉摊主)
-    
+“老子说不让你上厕所，就不让你上厕所，憋死你！kao，不然老子白当了厕所所长了。”
 
-	
-	[http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)敬请在文末发表评论，留下您的意见  [javascript:StorePage()]([收藏此页365key])
-	
+“看上你们家姑娘怎么着了，不就是要几个钱吧，老子在城里摆了这几年猪肉摊赚够了钱，给你几万，总可以了吧。”
 
-	         
-	
-      		“老子说不让你上厕所，就不让你上厕所，憋死你！kao，不然老子白当了厕所所长了。”
+目前，我们社会上最多的就是“厕所所长”和“猪肉摊主”，一个个都神气得不行。去年去圆明园陪父母转悠，看到在做防渗工程，感到难以理解，但是不知道问题出在哪里…前阵子这个问题已经被媒体穷打了。只是北京市委宣传部管理下的北京市媒体没有作声。自然，《新京报》就能好好发挥一下： 
 
-	“看上你们家姑娘怎么着了，不就是要几个钱吧，老子在城里摆了这几年猪肉摊赚够了钱，给你几万，总可以了吧。”
+其中，俞孔坚作为反对派站出来，高声叫嚷，声音十分响亮，听得人心振奋。俞博士（他员工对他的称呼）一直我都很景仰，尽管他成熟老练也善于和媒体交往，但是他在“景观”领域就和张永和在“建筑”领域一样，将这样的专门领域还原成为大众话题——事实上，景观学科和建筑学科本来就应该是大众话题，因为它和人们的日常环境是如此紧密。从里我看到的俞博士，则是一个优秀的公共知识分子，他能明确发表言论，并且倡导遗产保护和人文精神，不得不让人击节赞赏。我相信问题可以从多方面解说，也许各执一词，但是俞博士在上文里发表的所有言论我都百分百支持，而更加支持的显然是他的“公共意识”。比如：
 
-	目前，我们社会上最多的就是“厕所所长”和“猪肉摊主”，一个个都神气得不行。去年去圆明园陪父母转悠，看到在做防渗工程，感到难以理解，但是不知道问题出在哪里…前阵子这个问题已经被媒体穷打了。只是北京市委宣传部管理下的北京市媒体没有作声。自然，《新京报》就能好好发挥一下：[http://www.thebeijingnews.com/news/2005/0414/12@020125.html](
+新京报：在圆明园里，可以看到“不准采摘野花野草”的标牌；而与此同时，管理者却大规模砍伐林木，毁坏植被。这种对比很是耐人寻味。
 
-1. 圆明园防渗工程铺膜已完工)   [http://www.thebeijingnews.com/news/2005/0414/12@015203.html](2. 圆明园防渗遭商业开发质疑)
+俞孔坚：我注意到了这种现象，还拍了对比照片。为什么普通游客和老百姓连采一点儿野花野草都不允许，而管理者却可以开动多台挖掘机来搞“三光”，这与我们这个社会的性质相符吗？尊重普通人，如同尊重普通的乡土物种，这便是我倡导的足下文化与野草之美。做到这一点了，离和谐社会要求的人地关系的和谐也就不远了。
 
-	其中，俞孔坚作为反对派站出来，高声叫嚷，声音十分响亮，听得人心振奋。俞博士（他员工对他的称呼）一直我都很景仰，尽管他成熟老练也善于和媒体交往，但是他在“景观”领域就和张永和在“建筑”领域一样，将这样的专门领域还原成为大众话题——事实上，景观学科和建筑学科本来就应该是大众话题，因为它和人们的日常环境是如此紧密。从[http://www.thebeijingnews.com/news/2005/0417/12@002042.html]([时事访谈]圆明园事件强化国人的遗产意识)里我看到的俞博士，则是一个优秀的公共知识分子，他能明确发表言论，并且倡导遗产保护和人文精神，不得不让人击节赞赏。我相信问题可以从多方面解说，也许各执一词，但是俞博士在上文里发表的所有言论我都百分百支持，而更加支持的显然是他的“公共意识”。比如：
+与此想到的是，现在“管理者”的“权力”太大了，即便是“圆明园”的“管理者”。在“”里面我就说过，像这些公共遗产的“管理者”只是行使“托管”的指责而已，而“圆明园”则是“公共财产”。但是这样的“管理者”就能够随意“禁止”人们接触花花草草的同时随意砍伐和毁坏整个景观。这“权”未免太大了吧？就是有这种情况，一个“厕所所长”就有权憋死你，一个圆明园的管理者就敢毁掉全中国乃至世界人民的“公共财产”。
 
-	新京报：在圆明园里，可以看到“不准采摘野花野草”的标牌；而与此同时，管理者却大规模砍伐林木，毁坏植被。这种对比很是耐人寻味。
+问题出在哪里呢？因为，“权”即便是小小人物的“权”都没有任何的约束，他在自己领域内的“绝对发言权”不受任何因素限制，这样自然会导致类似事件层出不穷。“听证会”不应该变成一个搞笑的机制，变成一个维护“管理者”的机制，如果说连本来价格就60元的故宫能够“听证”以后涨价，那么“圆明园”的听证自然还有人敢不断反驳。
 
-	俞孔坚：我注意到了这种现象，还拍了对比照片。为什么普通游客和老百姓连采一点儿野花野草都不允许，而管理者却可以开动多台挖掘机来搞“三光”，这与我们这个社会的性质相符吗？尊重普通人，如同尊重普通的乡土物种，这便是我倡导的足下文化与野草之美。做到这一点了，离和谐社会要求的人地关系的和谐也就不远了。
+对于“厕所所长”，我们一定要警惕，因为这样的“厕所所长”都以为“公共厕所”是他们自家的财产，于是想憋死老百姓就憋死，着实会从底层损害整个社会。
 
-	与此想到的是，现在“管理者”的“权力”太大了，即便是“圆明园”的“管理者”。在“[http://blog.zhanbin.com/index.php/28.html](哪些应该共产)”里面我就说过，像这些公共遗产的“管理者”只是行使“托管”的指责而已，而“圆明园”则是“公共财产”。但是这样的“管理者”就能够随意“禁止”人们接触花花草草的同时随意砍伐和毁坏整个景观。这“权”未免太大了吧？就是有这种情况，一个“厕所所长”就有权憋死你，一个圆明园的管理者就敢毁掉全中国乃至世界人民的“公共财产”。
+第二类应该警惕的人群是“猪肉摊主”。看看这个图，其气势和规模兼职就是一个缩微版的南京中山陵：
 
-	问题出在哪里呢？因为，“权”即便是小小人物的“权”都没有任何的约束，他在自己领域内的“绝对发言权”不受任何因素限制，这样自然会导致类似事件层出不穷。“听证会”不应该变成一个搞笑的机制，变成一个维护“管理者”的机制，如果说连本来价格就60元的故宫能够“听证”以后涨价，那么“圆明园”的听证自然还有人敢不断反驳。
+的建造者就是一个“猪肉摊主”，尽管他的猪肉摊已经做得很大，自己都成了“著名民营企业家”，但是这个摊主是一个典型的卖猪肉发了小财的人，回老家看上了花花姑娘就耍流氓，占了人家的便宜以后叫嚣说“老子有钱”，于是用钱打发了姑娘和姑娘的亲人以及村干部，所以事情就没了。这个“著名民营企业家”看中了“国家森林公园”这个花花姑娘，于是采取了一模一样的方式占有了“森林公园”的清白，其原因就是有钱——整个社会都爱钱而且怕钱，于是，几张票子能塞住所有人的所有口，尤其是那有“权”的，见了票子别说清白，恨不得当婊子去死缠烂打，你说那“姑娘”能有清白吗？
 
-	对于“厕所所长”，我们一定要警惕，因为这样的“厕所所长”都以为“公共厕所”是他们自家的财产，于是想憋死老百姓就憋死，着实会从底层损害整个社会。
+环保是这个什么东西？在“厕所所长”和“猪肉摊主”的压力下，大概只能憋着尿被人玷污而已。不知道，是怎么想的，在这个缺乏对“权”和“钱”最起码约束的社会，机制和道德都没法约束它们的社会，一个个人能蹦多高？
 
-	第二类应该警惕的人群是“猪肉摊主”。看看这个图，其气势和规模兼职就是一个缩微版的南京中山陵：
-
-	
-
-	[http://www.thebeijingnews.com/news/2005/0417/10@015926.html](国家森林公园内毁林建豪冢)的建造者就是一个“猪肉摊主”，尽管他的猪肉摊已经做得很大，自己都成了“著名民营企业家”，但是这个摊主是一个典型的卖猪肉发了小财的人，回老家看上了花花姑娘就耍流氓，占了人家的便宜以后叫嚣说“老子有钱”，于是用钱打发了姑娘和姑娘的亲人以及村干部，所以事情就没了。这个“著名民营企业家”看中了“国家森林公园”这个花花姑娘，于是采取了一模一样的方式占有了“森林公园”的清白，其原因就是有钱——整个社会都爱钱而且怕钱，于是，几张票子能塞住所有人的所有口，尤其是那有“权”的，见了票子别说清白，恨不得当婊子去死缠烂打，你说那“姑娘”能有清白吗？
-
-	环保是这个什么东西？在“厕所所长”和“猪肉摊主”的压力下，大概只能憋着尿被人玷污而已。不知道，[http://blog.zhanbin.com/index.php/8.html](潘岳)是怎么想的，在这个缺乏对“权”和“钱”最起码约束的社会，机制和道德都没法约束它们的社会，一个个人能蹦多高？
-
-    
-    
-    
-    
-      by horse in [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized) on [http://blog.zhanbin.com/index.php/29.html](04.17.05) @ 5:33 pm | [http://blog.zhanbin.com/index.php/29.html#comments]()
-    
-
-  
+by horse in on @ 5:33 pm | [)
 
 随机显示文章
 
-[http://blog.zhanbin.com/index.php/50.html](大快朵颐)[http://blog.zhanbin.com/index.php/70.html](怪癖：我真的有怪癖嘛？)[http://blog.zhanbin.com/index.php/29.html](毫无约束的“权”与“钱”——厕所所长与猪肉摊主)[http://blog.zhanbin.com/index.php/36.html](2005年，中国政府的台湾问题态度：全面部署，积极解决)[http://blog.zhanbin.com/index.php/68.html](家乡图记5：池塘和池塘边)
-
 3 留言 so far
 
- 
+
 [#postcomment](Leave a comment)
 
 )
 
 )
 
-	提个小意见
+提个小意见
 
 在汉字的排版处理中最好不要用 斜体
 
@@ -83,123 +57,75 @@ categories: [blog]
 
 愚见 呵呵
 
-	我是从小在印刷厂长大的 
+我是从小在印刷厂长大的 
 
 By brick) on 04.18.05 10:13 am 
 
 )
 
-	hehe，“引用”自动变斜体，我没找到哪里可以更改:( 正在找，呵呵。
+hehe，“引用”自动变斜体，我没找到哪里可以更改:( 正在找，呵呵。
 
 By horse) on 04.18.05 11:19 am 
 
 )
 
-	不妨用加个淡点的底色来表示引用 呵呵
+不妨用加个淡点的底色来表示引用 呵呵
 
 看来老外写的时候没有考虑多语言的扩展啊 xixi
 
 By brick) on 04.18.05 8:40 pm 
 
 订阅此文章的留言RSS。) 
-	[http://blog.zhanbin.com/index.php/29.html/trackback/](TrackBack URI)
+
 
 )
 写留言
 
-自动分行和段，email也不会显示出来，允许的HTML标签： <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
+自动分行和段，email也不会显示出来，允许的HTML标签： 
 
-	
-	  
-	   名字 （必须）	
-	
-	
+名字 （必须）	
 
-	
-	  
-	   E-mail （必须）	
+E-mail （必须）	
 
-	
-	  
-	   URI
-	
+URI
 
-	
-	  你的留言
-	
-
-	  
-	
-
-	
-	  
-	
-
-	
-
- 
- 
-
-    
-
-  
- 
- 
+你的留言
 
 function StorePage()
 {
-        d=document;
-        t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
-        void(keyit=window.open('http://www.365key.com/storeit.aspx?t='+escape(d.title)+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
-        keyit.focus();
+d=document;
+t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
+void(keyit=window.open(')+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
+keyit.focus();
 }
- 
-
-  
-  
-  
-
-  
 
 加“摩顶放踵”到收藏夹)
 
-[http://feeds.feedburner.com/zhanbin](订阅本站)
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
-
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-[http://media.zhanbin.com](广泛传播：关于互联网与传媒的专业blog)
-
 网络害怕寂静，敬请留言或发表评论，以免惶恐不安
 
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)Google试水印刷媒体广告市场)“物志”不是网络杂志的标竿)（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)
+Google试水印刷媒体广告市场)“物志”不是网络杂志的标竿)（web2.06）人力资源网站的web2.0)（web2.05）与风投聊web2.0)web2.0：正在变化中的互联网（提纲稿）)雅虎牵手阿里巴巴：中小企业的网络营销巨鳄)推荐：《理解传媒经济学》)（web2.04）应用导向的技术创新)（web2.03）谁在炒作web2.0?)媒体产品的国际市场营销研究思路)
 
 Categories
 
-	All
-	Uncategorized
+All
+Uncategorized
 
 Archives
 
 Archives by Month
-	 九月 2005 
-	 八月 2005 
-	 七月 2005 
-	 六月 2005 
-	 五月 2005 
-	 四月 2005 
-	 三月 2005 
-	 二月 2005 
-	 十一月 2004 
-	 八月 2004 
-
-  
+九月 2005 
+八月 2005 
+七月 2005 
+六月 2005 
+五月 2005 
+四月 2005 
+三月 2005 
+二月 2005 
+十一月 2004 
+八月 2004 
 
 Search
 
-  
-    
 Blogroll
 *服装产业观察)
 
@@ -251,35 +177,24 @@ taras·秦轩的BLOG)
 
 黄集伟·孤岛客)
 
- 
-
 syndicate
-[http://feeds.feedburner.com/zhanbin](订阅本站)
 
-[http://feeds.feedburner.com/zhanbin](Syndicate this site)
+[)
 
-[http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin]()
+[)
 
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin&tt=CENTRALDIRECTORY&ru=http://rss.msn.com']()
-
-[http://feeds.feedburner.com/zhanbin]()     
-
-  
+[) 
 
 recent comments
-biantaishabi: [http://blog.zhanbin.com/index.php/73.html#comment-539](还是你们这里比较好。我这次...)horse: [http://blog.zhanbin.com/index.php/70.html#comment-535](我输了，你来拿钱吧。顺便请...)花小卷: [http://blog.zhanbin.com/index.php/70.html#comment-534](更正：赌：...)花小卷: [http://blog.zhanbin.com/index.php/70.html#comment-533](做老师了？不在那杂志做了？...)renyang: [http://blog.zhanbin.com/index.php/70.html#comment-529](俺博客上链接做了不多，既然...)
+biantaishabi: horse: 花小卷: 花小卷: renyang: 
 
-  
-    
-[http://creativecommons.org/licenses/by-nc-sa/2.0/](
-    )
-    Except noted, this site is licensed under a [http://creativecommons.org/licenses/by-nc-sa/2.0/](Creative Commons License)
-  
+Except noted, this site is licensed under a 
 
-Powered by [wordpress.org](wordpress). Theme based on [http://www.thoughtmechanics.com/blog/2005/02/18/not-so-minima/](MinimaPlus)
 
-[http://www.statcounter.com/]()
+Powered by [wordpress.org](wordpress). Theme based on 
+
+[)

@@ -5,7 +5,6 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_95"
 ---
 
-
 ■ 摩顶放踵 ■ personal blog » 请为环保记者刘鉴强投票
 ■ 詹膑·homepage ■ 摩顶放踵·personal blog ■ 广泛传播·media blog ■ 亦言亦行·edu blog ■
 ■ 摩顶放踵 ■ personal blog
@@ -25,7 +24,7 @@ Email Required, hidden
 Url
 Comment
 Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong>
+
 Trackback this post  |  Subscribe to the comments via RSS Feed
 大小白
 本故事纯属虚构，切勿对号入座

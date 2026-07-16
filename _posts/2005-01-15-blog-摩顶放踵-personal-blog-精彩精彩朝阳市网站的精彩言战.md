@@ -5,67 +5,31 @@ categories: [blog]
 ---
 
 ■ 摩顶放踵 ■ personal blog » 精彩！精彩！朝阳市网站的精彩言战
-	
-	
-	
-	
-	
-		
 
-■ [http://zhanbin.com](詹膑·homepage) ■ [http://blog.zhanbin.com](摩顶放踵·personal blog) ■ [http://media.zhanbin.com](广泛传播·media blog) ■ [http://edu.zhanbin.com](亦言亦行·edu blog) ■
+■ ■ ■ ■ ■
 
-	[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
- 
+十月 15th, 2005
 
-	
-		
-			
-			
-		
-	
+事情发生在辽宁朝阳市，据说是全国十大穷市之一。但是我搜索到其，做得还不错，其中有“”，有个“”，我在上面留言说朝阳市有大规模传销活动，没有回音。今上去看了一下，发现许多非常精彩的东西，做了一堆截图，包括两个部分：
 
-	
-		[http://blog.zhanbin.com](首页)
-		[http://blog.zhanbin.com/index.php/guestbook/](留言本)
-[http://blog.zhanbin.com/index.php/archives/](Archives)
-	
+1、是这个留言投诉确实有很多人使用，而且其中很多投诉得到了比较快的回复，而且是责成相关部门做的解释。参考这。内容包括：患者投诉医院不负责任治疗；对广场发现大便不满以及对灯光费电的建议；教师因为不公待遇倒在讲台上得到不满意回复又重提详细投诉校长舞弊改制；退休职工工资没有按时发放；公安局与刻章公司存在特殊关系；西部大学生志愿者求职困惑等等，基本都有回复，看起来颇有意思。
 
-	
-	
+2、煤气公司改制引起轩然大波，就像故事接龙一样精彩。，是倒序，应该从最后一张看起。大致故事如下：先有人替煤气公司刘总叫屈，说刘总够意思，市里应该尊重其意见；由于其中提到调走经理送给十万元，有老百姓不服说拿国家钱送人情，都是干部受好处；接着有人问煤气公司改制会不会煤气涨价；有人问拿走那么多钱是否交了个人所得税；再就有人揭发煤气公司在住宅项目上有猫腻；有人详细揭示拿走十万元的前经理是如何捞钱的；再下来形势逆转，有人站出来替煤气公司刘总叫屈，说能干、辛苦，做了好事情，其它是诽谤；然后有退休职工看不过眼来支持刘总和前经理李总，夸他们出类拔萃；于是“一线工人”和“工人阶级”怒了，说工人受苦受累没有增加实质收入，中层和高层却收入狂赠，有详细数据；“工人阶级”继续揭露整个改制过程中的舞弊和人事现象；接下来两方语气都不好了，一番狂吵……真是一出精彩的戏，而戏背后的社会现象和心酸则在字里行间逐一显示。
 
-		[http://blog.zhanbin.com/index.php/84.html](精彩！精彩！朝阳市网站的精彩言战)
-
-		
-		   		十月 15th, 2005
-   		
-   		   		
-
-			[http://blog.zhanbin.com/index.php/83.html](表姐表姐夫“逃生”，传销各地履禁不止)事情发生在辽宁朝阳市，据说是全国十大穷市之一。但是我搜索到其[http://www.zgcy.gov.cn/index.asp](政府网站)，做得还不错，其中有“[http://www.zgcy.gov.cn/szxx/smts.asp](市民投诉)”，有个“[http://www.zgcy.gov.cn/szxx/index.asp](留言板投诉方式)”，我在上面留言说朝阳市有大规模传销活动，没有回音。今上去看了一下，发现许多非常精彩的东西，做了一堆截图，包括两个部分：
-
-	1、是这个留言投诉确实有很多人使用，而且其中很多投诉得到了比较快的回复，而且是责成相关部门做的解释。参考这[http://www.flickr.com/photos/zhanbin/tags/chaoyangshi/](一组截图)。内容包括：患者投诉医院不负责任治疗；对广场发现大便不满以及对灯光费电的建议；教师因为不公待遇倒在讲台上得到不满意回复又重提详细投诉校长舞弊改制；退休职工工资没有按时发放；公安局与刻章公司存在特殊关系；西部大学生志愿者求职困惑等等，基本都有回复，看起来颇有意思。
-
-	2、煤气公司改制引起轩然大波，就像故事接龙一样精彩。[http://www.flickr.com/photos/zhanbin/tags/meiqigongsi/](截图在这里)，是倒序，应该从最后一张看起。大致故事如下：先有人替煤气公司刘总叫屈，说刘总够意思，市里应该尊重其意见；由于其中提到调走经理送给十万元，有老百姓不服说拿国家钱送人情，都是干部受好处；接着有人问煤气公司改制会不会煤气涨价；有人问拿走那么多钱是否交了个人所得税；再就有人揭发煤气公司在住宅项目上有猫腻；有人详细揭示拿走十万元的前经理是如何捞钱的；再下来形势逆转，有人站出来替煤气公司刘总叫屈，说能干、辛苦，做了好事情，其它是诽谤；然后有退休职工看不过眼来支持刘总和前经理李总，夸他们出类拔萃；于是“一线工人”和“工人阶级”怒了，说工人受苦受累没有增加实质收入，中层和高层却收入狂赠，有详细数据；“工人阶级”继续揭露整个改制过程中的舞弊和人事现象；接下来两方语气都不好了，一番狂吵……真是一出精彩的戏，而戏背后的社会现象和心酸则在字里行间逐一显示。
-
-	感受一：这个网站非常好，留言投诉的形式也非常好，就像一个地方的民主墙。
+感受一：这个网站非常好，留言投诉的形式也非常好，就像一个地方的民主墙。
 
 感受二：地方问题太多太多，这种监督形式缺乏实质性的问题解决方式。
 
-		Entry Filed under: [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)
+Entry Filed under: 
 
-   
+2 Comments [#commentform](Add your own)
 
-	2 Comments [#commentform](Add your own)
+1.
 
-	
 
-	
-	
-	1.
+windix)  |  十月 16th, 2005 at 2:42 pm
 
-	
-	windix)  |  十月 16th, 2005 at 2:42 pm
-
-			哈，small world。我的家乡就是辽宁朝阳。
+哈，small world。我的家乡就是辽宁朝阳。
 
 “穷山恶水出刁民”这句话老师您应该听过吧 
 
@@ -75,123 +39,49 @@ categories: [blog]
 
 BTW, “全国十大贫困地区”早有耳闻，似乎也是早年的事了，至少现在市区肯定排不上了 
 
-		
+2.
 
-	
 
-	
-	2.
+WOLFay)  |  十月 20th, 2005 at 10:01 am
 
-	
-	WOLFay)  |  十月 20th, 2005 at 10:01 am
-
-			有回音了，替你贴过来。说了一堆废话，不过有回音总是不错的，态度很好：
+有回音了，替你贴过来。说了一堆废话，不过有回音总是不错的，态度很好：
 
 最后回复： 回复：报案：朝阳市有大规模传销活动 回复人： 市民投诉中心
 
 打击传销是政府各部门、广大市民及全社会的责任和义务。多年来市工商局认真办理这项工作，制定了《朝阳市打击传销工作三年规划》，建立了打击传销工作领导小组和办公室；坚持“有案必查，露头必打”的原则；抓好现场教育，瓦解传销组织；同时加强执法宣传，通过曝光案例、“致广大市民公开信”等形式营造“人人喊打”的社会环境。1－10月份共出动执法人员490人次，捣毁传销窝点54个，教育驱散传销人员1650次，打击传销工作取得了明显实效。至于投诉人的投诉，诚请说明具体的地点，以便我们查找打击，再就是，若发现传销现象，请直接打电话举报，电话号码是：96315转4492
 
-	　　　　　　　　　　　　　　　　　　朝阳市工商局
+　　　　　　　　　　　　　　　　　　朝阳市工商局
 
 　　　　　　　　　　　　　　　　　　2005年10月18日
 
-		
+Leave a Comment
 
-	
+Name Required
 
-	Leave a Comment
+Email Required, hidden
 
-	
-	
-		
+Url 
 
-	
-			Name  Required
+Comment 
 
-			Email  Required, hidden
+Some HTML allowed:
 
-			Url 
 
-			Comment 
-
-			
-			
-
-	  	
-		
-
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	[http://blog.zhanbin.com/index.php/84.html/trackback/](Trackback this post)  |  Subscribe to the comments via RSS Feed)
-
- 
- 
-
-		
-		
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
+ |  Subscribe to the comments via RSS Feed)
 
 信息台
-[http://ofblog.com/wzp](
-最佳财经观察Blog)
 
-[http://ofblog.com/wzp/](王正鹏·财经夜谭)
+订阅 [)
 
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-订阅 [http://feeds.feedburner.com/zhanbin]()
-
-[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
-
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin](Newsgator订阅)
-
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
-
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
-
-[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
-Rojo订阅)
-
-[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
-
-[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
-
-[http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
-[http://feeds.feedburner.com/zhanbin]()
-
-			
-			
+[)
 
 广告:
 
-			
+Most Recent Posts
 
-		
-		
+美国杂志编辑学会评选出40年最佳封面杂志)存照，正视听)搜索引擎功能大比拼)讲座：web标准与用户体验)我承认，我很郁闷，并渴望诅咒)评globehr新版：职业搜索也要社会性)精英写blog＝精英落草)统计数据：Technorati描述的blogosphere)Feedburner强化对Yahoo! Podcasts的支持)Audacity没有保存.aup怎办？)
+为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)opensource、e-learning和open education)
 
-	Most Recent Posts
+© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
-	
-	[http://blog.zhanbin.com/index.php/85.html](新职业)
-[http://blog.zhanbin.com/index.php/83.html](表姐表姐夫“逃生”，传销各地履禁不止)
-[http://blog.zhanbin.com/index.php/82.html](汕头街头的三多or更多)
-[http://blog.zhanbin.com/index.php/81.html](拜地主爷的潮汕风俗)
-[http://blog.zhanbin.com/index.php/80.html](安全套、书店和鞋店)
-[http://blog.zhanbin.com/index.php/78.html](买游击队的水果要小心)
-[http://blog.zhanbin.com/index.php/77.html](推荐：选择个税起征点，贵在藏富于民)
-[http://blog.zhanbin.com/index.php/76.html](《娱乐至上：体验经济时代的商业秀》)
-[http://blog.zhanbin.com/index.php/75.html](Madagascar 马达加斯加 简评)
-	
-
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)美国杂志编辑学会评选出40年最佳封面杂志)存照，正视听)搜索引擎功能大比拼)讲座：web标准与用户体验)我承认，我很郁闷，并渴望诅咒)评globehr新版：职业搜索也要社会性)精英写blog＝精英落草)统计数据：Technorati描述的blogosphere)Feedburner强化对Yahoo! Podcasts的支持)Audacity没有保存.aup怎办？)
-[http://edu.zhanbin.com](■ 亦言亦行 ■ edu blog)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)opensource、e-learning和open education)
-
- 
-
- 
-
-	© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
-
-	Design based on [http://www.kingcosmonaut.de/blix/](Blix) Theme by [http://z2studio.com](Z2studio). Powered by [http://www.wordpress.org/](WordPress) . [http://blog.zhanbin.com/wp-login.php](登录)
+Design based on Theme by . Powered by .

@@ -1,10 +1,9 @@
 ---
-title: "API从网站中解放出来，也许会带来web3.0 : ■ 詹膑 ■ Homepage"
+title: "API从网站中解放出来，也许会带来web3.0"
 date: 2007-11-05 12:00:00 +0800
 categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/420"
 ---
-
 
 API从网站中解放出来，也许会带来web3.0 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -151,7 +150,7 @@ December 13th, 2007
 cobra on
 January 18th, 2008
 给你个网站看看是不是WEB3.0
-http://www.yaawa.com
+
 Leave a Reply
 Name (required)
 Email Address(required)

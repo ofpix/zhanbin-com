@@ -1,10 +1,9 @@
 ---
-title: "Facebook翻版们的蚂蚁雄兵时代 : ■ 詹膑 ■ Homepage"
+title: "Facebook翻版们的蚂蚁雄兵时代"
 date: 2008-06-06 12:00:00 +0800
 categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/467"
 ---
-
 
 Facebook翻版们的蚂蚁雄兵时代 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -139,11 +138,11 @@ June 7th, 2008
 很难再产生一个Google、百度，但酷讯、去哪儿这种垂直搜索引擎正在蓬勃发展。
 悟空 on
 June 10th, 2008
-宅内：http://www.zhainei.com
+宅内：
 我这也是蚂蚁雄兵的一员，做得就是宅人的一个SNS
 张维森 on
 June 11th, 2008
-一只蚂蚁：烟大人（http://www.ydface.cn）
+一只蚂蚁：烟大人（
 weiyiduji on
 June 17th, 2008
 如果蚂蚁雄兵心不大，各占自己三分田，建立起自己的小圈子，然后整合康盛的产品，直接进入商务，那是否更能有所发展呢。FACEBOOK已经不是一般的SNS平台，而是一个互联网操作系统，它的成功可谓是天时地利人和。蚂蚁雄兵不能按着它的逻辑去发展，进入垂直领域，追求深应用或许还能成为一条出路。未来的SNS不会是一家独大，国外是，国内也是，分布式社群是一个必然的趋势，细分的用户需要细分的社交入口，这是蚂蚁雄兵的机遇所在。

@@ -5,238 +5,105 @@ categories: [blog]
 ---
 
 ■ 摩顶放踵 ■ personal blog » 怪癖：我真的有怪癖嘛？
-	
-	
-	
-	
-	
-		
 
-■ [http://zhanbin.com](詹膑·homepage) ■ [http://blog.zhanbin.com](摩顶放踵·personal blog) ■ [http://media.zhanbin.com](广泛传播·media blog) ■ [http://edu.zhanbin.com](亦言亦行·edu blog) ■
+■ ■ ■ ■ ■
 
-	[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
- 
+八月 30th, 2005
 
-	
-		
-			
-			
-		
-	
+昨儿还跟欣欣说我没有怪癖，今儿就要我“怪癖”了……因为没有特别关心这个扩散游戏，不知道进展如何了，是以我就不点名了……
 
-	
-		[http://blog.zhanbin.com](首页)
-		[http://blog.zhanbin.com/index.php/guestbook/](留言本)
-[http://blog.zhanbin.com/index.php/archives/](Archives)
-	[http://blog.zhanbin.com/index.php/89.html](从头阅读大小白)
+1、买书癖。我隔阵子就要买些书，否则浑身不舒服。虽然上大学以前也买，但是自己抠出一点钱不容易，所以没有这么癖好。但是读大学，开始是经常往海淀图书城跑，国林风还有北大南门的风入松，再有好几段时间每天都要去看旧书摊，是以形成了每天买一两本的习惯，那时几个好地点是清华十食堂小树林、北门外旧书摊一条龙和北大小东门书摊和而后校园西南角的书摊。书市的大量购书和清华图书馆处理旧书时候的抢购，导致我很早就到处找地方放书。后来研究生有阵子戒得差不多了，只是逛逛书市。但是当老师以后，需要更多的参考书，而图书馆不好用，是以，购书癖死灰复燃而且有变本加厉的倾向。是以，家里还是有些好书的，并且好书大抵都是我不看的书，比如很多传统经史子集的资料等。还有，有时候遇到好书而且价格不错，我可能买两本，或者我以前买了一本现在又买一本……
 
-	
-	
+2、收拾东西的虎头蛇尾。我不爱收拾东西，但是我很喜欢规划怎么收拾东西。所以，我经常案头乱七八糟，或者电脑里文件夹混乱桌面上全是文件，这个时候我会很认真地规划怎么收拾，什么放在什么地方，尤其是会在电脑里规划出两层或者三层的文件夹系统。但是很少完整地收拾过，总是收拾个开头或者一半就放下，偶尔收拾完了，也毫无养成归档习惯的可能性，所以，过阵子，照旧是乱七八糟。
 
-		[http://blog.zhanbin.com/index.php/70.html](怪癖：我真的有怪癖嘛？)
+3、闲着没事，喜欢想很多点子，以及应该做什么事情和事情应该怎么做。这个后来干脆变成了我的“思维训练”。由于资讯比较多和宽泛，所以这些点子和想法五花八门，其中很多还是很有价值的，然后想的过程中，我经常会“左右手互搏”，一边想这件事情很好，应该如何如何，一边想，这个事情有困难，会遇到什么什么。有时候会列一个很长的单子，上面记录这些事情，想，什么时候有空可以试试做做，结果这些单子通常都会不见。我也一直保持这种思维激烈，行动迟缓的状态。
 
-		
-		   		八月 30th, 2005
-   		
-   		   		
+4、看书喜欢拿着笔在书上打记号，这也导致我不适合借书看而适合买书看。这种想问题的时候需要涂涂画画，何人说话讨论问题的时候也需要涂涂画画，这个癖好也许还和一些设计师、建筑师打过交道有关系。经常这些涂涂画画的东西比较难以辨认，但是我特别喜欢最后涂画出来的效果，经常很自恋地认为那些文字或者符号很好看。这最麻烦的是发展到在课堂上，讲课的时候我也喜欢涂涂画画，但是学生都以为我在板书，获得一个板书极为不清晰的批评。
 
-			昨儿还跟欣欣说我没有怪癖，今儿[http://blog.94smart.com/index.php?q=node/378](94smart)就要我“怪癖”了……因为没有特别关心这个扩散游戏，不知道进展如何了，是以我就不点名了……
+5、喜欢去煽动别人做些事情，也喜欢在别人想做事情的时候不断打击……
 
-	1、买书癖。我隔阵子就要买些书，否则浑身不舒服。虽然上大学以前也买，但是自己抠出一点钱不容易，所以没有这么癖好。但是读大学，开始是经常往海淀图书城跑，国林风还有北大南门的风入松，再有好几段时间每天都要去看旧书摊，是以形成了每天买一两本的习惯，那时几个好地点是清华十食堂小树林、北门外旧书摊一条龙和北大小东门书摊和而后校园西南角的书摊。书市的大量购书和清华图书馆处理旧书时候的抢购，导致我很早就到处找地方放书。后来研究生有阵子戒得差不多了，只是逛逛书市。但是当老师以后，需要更多的参考书，而图书馆不好用，是以，购书癖死灰复燃而且有变本加厉的倾向。是以，家里还是有些好书的，并且好书大抵都是我不看的书，比如很多传统经史子集的资料等。还有，有时候遇到好书而且价格不错，我可能买两本，或者我以前买了一本现在又买一本……
+Entry Filed under: 
 
-	2、收拾东西的虎头蛇尾。我不爱收拾东西，但是我很喜欢规划怎么收拾东西。所以，我经常案头乱七八糟，或者电脑里文件夹混乱桌面上全是文件，这个时候我会很认真地规划怎么收拾，什么放在什么地方，尤其是会在电脑里规划出两层或者三层的文件夹系统。但是很少完整地收拾过，总是收拾个开头或者一半就放下，偶尔收拾完了，也毫无养成归档习惯的可能性，所以，过阵子，照旧是乱七八糟。
+6 Comments [#commentform](Add your own)
 
-	3、闲着没事，喜欢想很多点子，以及应该做什么事情和事情应该怎么做。这个后来干脆变成了我的“思维训练”。由于资讯比较多和宽泛，所以这些点子和想法五花八门，其中很多还是很有价值的，然后想的过程中，我经常会“左右手互搏”，一边想这件事情很好，应该如何如何，一边想，这个事情有困难，会遇到什么什么。有时候会列一个很长的单子，上面记录这些事情，想，什么时候有空可以试试做做，结果这些单子通常都会不见。我也一直保持这种思维激烈，行动迟缓的状态。
+1.
 
-	4、看书喜欢拿着笔在书上打记号，这也导致我不适合借书看而适合买书看。这种想问题的时候需要涂涂画画，何人说话讨论问题的时候也需要涂涂画画，这个癖好也许还和一些设计师、建筑师打过交道有关系。经常这些涂涂画画的东西比较难以辨认，但是我特别喜欢最后涂画出来的效果，经常很自恋地认为那些文字或者符号很好看。这最麻烦的是发展到在课堂上，讲课的时候我也喜欢涂涂画画，但是学生都以为我在板书，获得一个板书极为不清晰的批评。
 
-	5、喜欢去煽动别人做些事情，也喜欢在别人想做事情的时候不断打击……
+ |  八月 30th, 2005 at 6:17 pm
 
-		Entry Filed under: [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)
+怪僻接力
 
-   
-
-	6 Comments [#commentform](Add your own)
-
-	
-
-	
-	
-	1.
-
-	
-	[http://www.shunz.net/Tell_me_about_your_curious_habits](BLOG家园&hellip)  |  八月 30th, 2005 at 6:17 pm
-
-			怪僻接力
-
-	最近几天出去开会，今天刚回来，94smart就在Gtalk上对我说，你被贴了！我一头雾水，后来才知道是在怪癖游戏接龙中点了我的名，在此表示一下感谢。
+最近几天出去开会，今天刚回来，94smart就在Gtalk上对我说，你被贴了！我一头雾水，后来才知道是在怪癖游戏接龙中点了我的名，在此表示一下感谢。
 
 这个从海峡对面传来的游戏的规则就不细
 
-		
+2.
 
-	
 
-	
-	2.
+renyang)  |  九月 4th, 2005 at 12:01 am
 
-	
-	renyang)  |  九月 4th, 2005 at 12:01 am
+俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
 
-			俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
+3.
 
-		
 
-	
+renyang)  |  九月 4th, 2005 at 12:02 am
 
-	
-	3.
+俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
 
-	
-	renyang)  |  九月 4th, 2005 at 12:02 am
+4.
 
-			俺博客上链接做了不多，既然人家粘过来了，俺也粘一回吧。
 
-		
+花小卷  |  九月 6th, 2005 at 11:31 am
 
-	
-
-	
-	4.
-
-	
-	花小卷  |  九月 6th, 2005 at 11:31 am
-
-			做老师了？不在那杂志做了？前阵子还在vision上看见大作:)
+做老师了？不在那杂志做了？前阵子还在vision上看见大作:)
 
 我堵一块钱你不知道也不记得我是谁
 
-		
+5.
 
-	
 
-	
-	5.
+花小卷  |  九月 6th, 2005 at 11:32 am
 
-	
-	花小卷  |  九月 6th, 2005 at 11:32 am
+更正：赌：P
 
-			更正：赌：P
+6.
 
-		
 
-	
+horse)  |  九月 6th, 2005 at 12:10 pm
 
-	
-	6.
+我输了，你来拿钱吧。顺便请我吃饭……
 
-	
-	horse)  |  九月 6th, 2005 at 12:10 pm
+Leave a Comment
 
-			我输了，你来拿钱吧。顺便请我吃饭……
+Name Required
 
-		
+Email Required, hidden
 
-	
+Url 
 
-	Leave a Comment
+Comment 
 
-	
-	
-		
+Some HTML allowed:
 
-	
-			Name  Required
 
-			Email  Required, hidden
+ |  Subscribe to the comments via RSS Feed)
 
-			Url 
-
-			Comment 
-
-			
-			
-
-	  	
-		
-
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	[http://blog.zhanbin.com/index.php/70.html/trackback/](Trackback this post)  |  Subscribe to the comments via RSS Feed)
-
- 
- 
-
-		
-		
-
-[http://blog.zhanbin.com/index.php/89.html](大小白)
 本故事纯属虚构，切勿对号入座
-[http://www.feedsky.com/feed/daxiaobai](故事的rss)
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
 
 信息台
-[http://ofblog.com/wzp](
-最佳财经观察Blog)
 
-[http://ofblog.com/wzp/](王正鹏·财经夜谭)
+订阅 [)
 
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-订阅 [http://feeds.feedburner.com/zhanbin]()
-
-[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
-
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin](Newsgator订阅)
-
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
-
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
-
-[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
-Rojo订阅)
-
-[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
-
-[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
-
-[http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
-[http://feeds.feedburner.com/zhanbin]()
-
-			
-			
+[)
 
 广告:
 
-			
+Most Recent Posts
 
-		
-		
+如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
+商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
 
-	Most Recent Posts
+© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
-	
-	[http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)
-[http://blog.zhanbin.com/index.php/98.html](▲大白啊，出来混，很多事情，早晚都是要还的)
-[http://blog.zhanbin.com/index.php/97.html](▲小白揭发说大白记得十辈子的事情)
-[http://blog.zhanbin.com/index.php/95.html](请为环保记者刘鉴强投票)
-[http://blog.zhanbin.com/index.php/94.html](▲兔大白说：单恋也是受虐)
-[http://blog.zhanbin.com/index.php/93.html](▲被小女生欺负的小男生通常会爱上那个小女生)
-[http://blog.zhanbin.com/index.php/92.html](▲小白爱上归芸了)
-[http://blog.zhanbin.com/index.php/91.html](▲我的专栏是大白捉刀的)
-[http://blog.zhanbin.com/index.php/90.html](▲兔子为什么吃肉)
-[http://blog.zhanbin.com/index.php/88.html](▲龟儿子还是兔崽子)
-	
-
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
-[http://edu.zhanbin.com](■ 亦言亦行 ■ edu blog)商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
-
- 
-
- 
-
-	© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
-
-	Design based on [http://www.kingcosmonaut.de/blix/](Blix) Theme by [http://z2studio.com](Z2studio). Powered by [http://www.wordpress.org/](WordPress) . [http://blog.zhanbin.com/wp-login.php](登录)
+Design based on Theme by . Powered by .

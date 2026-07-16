@@ -1,10 +1,9 @@
 ---
-title: "blog与橙色关怀 : ■ 詹膑 ■ Homepage"
+title: "blog与橙色关怀"
 date: 2008-01-30 12:00:00 +0800
 categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/448"
 ---
-
 
 blog与橙色关怀 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -115,7 +114,7 @@ blog与橙色关怀
 风雪很冷，但是我们的心不能冷。
 每一个blog都从某种意义上进入了公共领域，因此，我们必须有所表达。
 在ofblog一开始，我偏执地选择了橙色作为主色调，原因是有大量新闻纸用的“橙色”，我想没有比严肃报纸更能代表对公共事务的关怀了。在当下，我们缺失了对公共事务的 关怀，互联网缺失了对公共事务的关怀，而我们国家，从体制和方法上也有所缺失。是以，我们需要橙色关怀。
-欢迎在你的blog放置如下图片（欢迎提供更好的图..），请连接到“ http://ofblog.com/60.html ” 或“ http://news.google.com/news?hl=zh-CN&q=%E9%9B%AA%E7%81%BE&um=1&ie=UTF-8&sa=X&oi=news_result&resnum=1&ct=title ” 也可系一条黄丝带。
+欢迎在你的blog放置如下图片（欢迎提供更好的图..），请连接到“ ” 或“ ” 也可系一条黄丝带。
 January 30, 2008 | Filed Under 传媒
 Comments
 16 Responses to “blog与橙色关怀”

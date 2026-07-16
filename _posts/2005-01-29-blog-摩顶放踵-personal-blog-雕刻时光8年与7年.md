@@ -5,118 +5,40 @@ categories: [blog]
 ---
 
 ■ 摩顶放踵 ■ personal blog » 雕刻时光：8年与7年
-	
-	 
 
-	
+订阅 [)
 
-	
-	
-	
-	
-	
-	
-    	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-	
-		
-
-	
-	
-		[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
-	
-
-	
-			
-				
-				[http://blog.zhanbin.com](首页)
-[http://blog.zhanbin.com/index.php/89.html](从头阅读大小白)
-				
-				
-			
-		
-			
-				
-					
-				
-			
-	
-	
-	
-		
-	
-
-		
-		
-
-订阅 [http://feeds.feedburner.com/zhanbin]()
-
-[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=hhttp://feeds.feedburner.com/zhanbin](Newsgator订阅)
-
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
-
-[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
-Rojo订阅)
-[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
-[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
-
- [http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
-
-[http://feeds.feedburner.com/zhanbin]()
+[)
 
 )
 
 重要页:
 
-[http://blog.zhanbin.com/index.php/archives/](存档)
-[http://blog.zhanbin.com/index.php/guestbook/](留言本)
-
-						
 分类：
-				
-					[http://blog.zhanbin.com/index.php/category/game/](game) (10)
 
-	[http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized) (84)
+(10)
 
-				
-			
-			
-						
+(84)
+
 存档文章：
-				
-					十二月 2005) (2)
-	十一月 2005) (14)
-	十月 2005) (7)
-	九月 2005) (7)
-	八月 2005) (10)
-	七月 2005) (9)
-	六月 2005) (7)
-	五月 2005) (6)
-	四月 2005) (15)
-	三月 2005) (14)
-	二月 2005) (1)
-	十一月 2004) (1)
-	八月 2004) (1)
-				
-			
 
-			
-			
+十二月 2005) (2)
+十一月 2005) (14)
+十月 2005) (7)
+九月 2005) (7)
+八月 2005) (10)
+七月 2005) (9)
+六月 2005) (7)
+五月 2005) (6)
+四月 2005) (15)
+三月 2005) (14)
+二月 2005) (1)
+十一月 2004) (1)
+八月 2004) (1)
+
 链接:
-				
-				*服装产业观察)
+
+*服装产业观察)
 *王正鹏·财经夜谭)
 Allan)
 antara·锦衣夜行)
@@ -145,119 +67,78 @@ taras·秦轩的BLOG)
 风烟讽喻)
 风起叶落)
 黄集伟·孤岛客)
-				
-			
 
 广告:
 
-			
-		
-		
+--> 
 
-		
 
-				
-			
+十一月 29, 2005 on 10:54 am | In | 
 
-		[http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)
 
-		-->  [http://blog.zhanbin.com/index.php/101.html](《时尚之旅》)
+昨晚在雕刻时光，凑巧碰上8周年的雕刻时光庆典，店里的店员请了几个老顾客作为代表，切了一个很大的蛋糕。
 
-				[http://blog.zhanbin.com/index.php/100.html](雕刻时光：8年与7年)
-				十一月 29, 2005 on 10:54 am | In [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized) | 
-			
-			
-				昨晚在雕刻时光，凑巧碰上8周年的雕刻时光庆典，店里的店员请了几个老顾客作为代表，切了一个很大的蛋糕。
+但我才是真正的老顾客。
 
-	但我才是真正的老顾客。
+我是在2000年1月22日，头次去雕刻时光，冬天，踩着很厚的雪，和刚在圆明园福海的雪地里打了个滚的amei一起。那是时候雕刻还是两间，靠外的有大窗户，很是美丽；靠里的则沿墙壁的书格和中间的书桌以回字型摆放咖啡桌。
 
-	我是在2000年1月22日，头次去雕刻时光，冬天，踩着很厚的雪，和刚在圆明园福海的雪地里打了个滚的amei一起。那是时候雕刻还是两间，靠外的有大窗户，很是美丽；靠里的则沿墙壁的书格和中间的书桌以回字型摆放咖啡桌。
+一晃马上就是7年。我还在闲逛。
 
-	一晃马上就是7年。我还在闲逛。
+第一次写雕刻时光，用的标题就是“闲逛在时光里”，还有若干句子，现在看起来熟悉又诧异，估计如今是写不出来这种东西了。
 
-	第一次写雕刻时光，用的标题就是“闲逛在时光里”，还有若干句子，现在看起来熟悉又诧异，估计如今是写不出来这种东西了。
+我并不是想恋爱，只是想闲逛。到了无聊的晚上，八九点钟的时候，偌大的校园空空荡荡的，而我们在七点多钟从篮球场下来吃过饭，只好几个人空空荡荡地转着。四五个校门任何一个也吸引不了我们，因为每个门外都像落拓的小镇，没有漂亮的灯光和特别的音响，色彩单调暗淡。这个不适合闲逛的校园不适合我们。除了闲逛，我还能把握什么呢？年轻的时候怎么能够连彷徨都没有呢？
 
-	我并不是想恋爱，只是想闲逛。到了无聊的晚上，八九点钟的时候，偌大的校园空空荡荡的，而我们在七点多钟从篮球场下来吃过饭，只好几个人空空荡荡地转着。四五个校门任何一个也吸引不了我们，因为每个门外都像落拓的小镇，没有漂亮的灯光和特别的音响，色彩单调暗淡。这个不适合闲逛的校园不适合我们。除了闲逛，我还能把握什么呢？年轻的时候怎么能够连彷徨都没有呢？
+……
 
-	……
+一个人泡咖啡馆的感觉和闲逛太相似了，把自己的心情交付给一杯咖啡，把自己的时间交付给无穷尽的思索，理想化的色彩把自己的现实朦胧了，让个人的所有感官放入某种感觉里，在音乐和书籍里面彻底消失掉。反正最后我都是用一种简单和年轻的方式打发了自己，同时却和雕刻的猫一样让生活臃肿起来，而不是瘦瘦地迅速流逝。
 
-	一个人泡咖啡馆的感觉和闲逛太相似了，把自己的心情交付给一杯咖啡，把自己的时间交付给无穷尽的思索，理想化的色彩把自己的现实朦胧了，让个人的所有感官放入某种感觉里，在音乐和书籍里面彻底消失掉。反正最后我都是用一种简单和年轻的方式打发了自己，同时却和雕刻的猫一样让生活臃肿起来，而不是瘦瘦地迅速流逝。
+……
 
-	……
+我的闲逛开始发展得愈来愈自在，以至于慢慢失去了闲逛的乐趣，而理想开始想摆脱我，就这样时光的手在用力地刻画我，而且没有规则杂乱无章具破坏力，但是我希望看到门转动的时候为什么有嘎吱嘎吱的响声还有门环是怎样变得一天天光亮起来的。
 
-	我的闲逛开始发展得愈来愈自在，以至于慢慢失去了闲逛的乐趣，而理想开始想摆脱我，就这样时光的手在用力地刻画我，而且没有规则杂乱无章具破坏力，但是我希望看到门转动的时候为什么有嘎吱嘎吱的响声还有门环是怎样变得一天天光亮起来的。
+……
 
-	……
 
-	
-	我当时的结尾是“在没有闲逛资格的今天，我愈发强迫自己去雕刻时光保持坐姿”。很奇怪，为什么感觉生活就是一个轮回呢？雕刻时光已经不是一个闲逛的状态，但我依然还在闲逛。我不是刚发现，我还是常去并且闲坐的地方已经不是以前的状态了，而且曾痛下心来和这个日显无趣的环境诀别。只是这个“诀别”并没有坚持多久。
+我当时的结尾是“在没有闲逛资格的今天，我愈发强迫自己去雕刻时光保持坐姿”。很奇怪，为什么感觉生活就是一个轮回呢？雕刻时光已经不是一个闲逛的状态，但我依然还在闲逛。我不是刚发现，我还是常去并且闲坐的地方已经不是以前的状态了，而且曾痛下心来和这个日显无趣的环境诀别。只是这个“诀别”并没有坚持多久。
 
-	闲逛风格的雕刻拆掉了好多年，却还没有在我记忆中拆掉。
+闲逛风格的雕刻拆掉了好多年，却还没有在我记忆中拆掉。
 
-	8年与7年，现在又回过头去看，闲逛变得如此不合时宜，而且也不和地宜。接下来，要将臃肿的生活一点点切薄。是以纪念。
+8年与7年，现在又回过头去看，闲逛变得如此不合时宜，而且也不和地宜。接下来，要将臃肿的生活一点点切薄。是以纪念。
 
-							
-				
-
-			
-
-			
-				
-		)
-
-随机推荐文章：
-[http://blog.zhanbin.com/index.php/30.html](买房慎重：房产投资开撤，房价稳或下降)[http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)[http://blog.zhanbin.com/index.php/93.html](▲被小女生欺负的小男生通常会爱上那个小女生)[http://blog.zhanbin.com/index.php/21.html](寻：原smth blogger的新blog)[http://blog.zhanbin.com/index.php/56.html](中国“和平崛起”的“乐观”与“不乐观”)
-
-[http://www.google.com/](
 )
 
+随机推荐文章：
+
 5 留言 
-	[#postcomment](»)
+[#postcomment](»)
 
 订阅此文章的留言RSS。) 
 
-[http://blog.zhanbin.com/index.php/100.html/trackback/](TrackBack URI)
+帮你准备好了销薄器,拿去用吧.
 
-	
-		帮你准备好了销薄器,拿去用吧.
+留言 作者 nicaio — 十一月 29, 2005 [#comment-1075](#)
 
-	留言 作者 nicaio — 十一月 29, 2005 [#comment-1075](#)
+7年，你痒吗？
 
-	
+我是在2000年1月22日，头次去雕刻时光，……一晃马上就是7年。
 
-	
-		7年，你痒吗？
+这个也按虚岁算？
 
-	我是在2000年1月22日，头次去雕刻时光，……一晃马上就是7年。
+留言 作者 keso) — 十一月 29, 2005 [#comment-1076](#)
 
-	这个也按虚岁算？
+那我虚痒成吗？
 
-	留言 作者 keso) — 十一月 29, 2005 [#comment-1076](#)
+留言 作者 horse) — 十一月 29, 2005 [#comment-1077](#)
 
-	
+KESO不但算术好,而且眼力好.怎么写几年我就觉得是几年.老师以后要认真一点…
 
-	
-		那我虚痒成吗？
+留言 作者 nicaio — 十一月 29, 2005 [#comment-1078](#)
 
-	留言 作者 horse) — 十一月 29, 2005 [#comment-1077](#)
-
-	
-
-	
-		KESO不但算术好,而且眼力好.怎么写几年我就觉得是几年.老师以后要认真一点…
-
-	留言 作者 nicaio — 十一月 29, 2005 [#comment-1078](#)
-
-	
-
-	
-		虚痒…
+虚痒…
 
 今天学到了一个新词了
 
-	留言 作者 biantaishabi) — 十一月 29, 2005 [#comment-1079](#)
-
-	
+留言 作者 biantaishabi) — 十一月 29, 2005 [#comment-1079](#)
 
 写留言
 
@@ -267,55 +148,25 @@ Mail (will not be published) （必须）
 
 Website
 
-XHTML: <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-			
-		
-				
-
-		
+XHTML: 
 
 新闻台
-[http://blog.zhanbin.com/index.php/89.html](生活真无趣，我要看小说：
-大小白系列（原创连载）)
 
-[http://ofblog.com/wzp/](王正鹏·财经夜谭)国储局打得过国际期铜游资吗？)资本家的操盘手对奕我们的同志，刘期兵陈久霖失败在预料中)12月的经济风向悄悄转变，中国积极财政可能作出暗调)谁敲响了报纸分类广告的丧钟？互联网搜索商)呼应大西南石油通道战略,中国可用缅甸抗衡马六甲石油地位)
+
+国储局打得过国际期铜游资吗？)资本家的操盘手对奕我们的同志，刘期兵陈久霖失败在预料中)12月的经济风向悄悄转变，中国积极财政可能作出暗调)谁敲响了报纸分类广告的丧钟？互联网搜索商)呼应大西南石油通道战略,中国可用缅甸抗衡马六甲石油地位)
 
 ■ 书讯 ■ 卓越网
 
-[http://www.joyo.com/static3/yf_050810_bkzn_sl.asp?source=horse](三联书店300种精选好书特价抢购)
-
-[http://www.joyo.com/static3/wj_050822_bkzn_shsj.asp?source=horse](上海世纪出版集团百种好书7折封顶)
-
-[http://www.joyo.com/static3/sfl_050815_bk_rmwh.asp?source=horse](人民文学出版社180种畅销获奖书75折抢)
-
-[http://www.joyo.com/static3/wj_050822_bkzn_zhsj.asp?source=horse](中华书局社藏精品图书75折抢)
-
-[http://www.joyo.com/static3/yf_050824_bkzn_jg.asp?source=horse](100种最畅销经管类图书)
-
-类别:所有类别图书影视/VCD/DVD音乐/CD/磁带日用/百货玩具/礼品/时尚游戏软件/硬件数码产品  关键词: [http://www.joyo.com/?source=horse]()
+类别:所有类别图书影视/VCD/DVD音乐/CD/磁带日用/百货玩具/礼品/时尚游戏软件/硬件数码产品 关键词: [)
 
 ■ 摩顶放踵 ■ 最新文章
-» [http://blog.zhanbin.com/index.php/102.html](晕……得罪谁了？)» [http://blog.zhanbin.com/index.php/101.html](《时尚之旅》)» [http://blog.zhanbin.com/index.php/100.html](雕刻时光：8年与7年)» [http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)» [http://blog.zhanbin.com/index.php/98.html](▲大白啊，出来混，很多事情，早晚都是要还的)
+» » » » » 
 ■ 摩顶放踵 ■ 最新评论
- wangwenyou: [http://blog.zhanbin.com/index.php/102.html#comment-1084](呵呵，恭喜发财...) biantaishabi: [http://blog.zhanbin.com/index.php/102.html#comment-1083](不是我啊
+wangwenyou: biantaishabi: biantaishabi: nicaio: horse: keso: nicaio: TODD: 淫听羽息: horse: 
 
-虽然我曾经也有过...) biantaishabi: [http://blog.zhanbin.com/index.php/100.html#comment-1079](虚痒...
-今天学到了一个新词...) nicaio: [http://blog.zhanbin.com/index.php/100.html#comment-1078](KESO不但算术好,而且眼力好.怎...) horse: [http://blog.zhanbin.com/index.php/100.html#comment-1077](那我虚痒成吗...) keso: [http://blog.zhanbin.com/index.php/100.html#comment-1076](7年，你痒吗？
-
-我是在2000年1...) nicaio: [http://blog.zhanbin.com/index.php/100.html#comment-1075](帮你准备好了销薄器,拿去用吧...) TODD: [http://blog.zhanbin.com/index.php/20.html#comment-1073](请给我一个吧zhanggongtao@gmail.com...) 淫听羽息: [http://blog.zhanbin.com/index.php/99.html#comment-1071](反正是有用就拿出来，没用就...) horse: [http://blog.zhanbin.com/index.php/93.html#comment-1068](赫赫，JJ说的是案例。我说的是...)
-
-[http://blog.zhanbin.com](■ 广泛传播 ■ 最新文章)如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
-[http://edu.zhanbin.com](■ 亦言亦行 ■ 最新文章)商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)
-
-	
-
-		
-		
-			
-
-			
+如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
+商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)
 
 Copyright © 2005 詹膑
 
-Powered by [http://wordpress.org](WordPress) Design based on [http://www.lamateporunyogur.net/pool](Pool theme). ^[#](Top)^
+Powered by Design based on . ^[#](Top)^

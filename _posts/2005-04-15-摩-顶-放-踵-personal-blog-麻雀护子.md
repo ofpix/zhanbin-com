@@ -5,7 +5,6 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_27"
 ---
 
-
 ■ 摩 顶 放 踵 ■ personal blog » 麻雀护子
 ■ 摩 顶 放 踵 ■ personal blog
 首页    !个人    传播    教育    联系
@@ -22,7 +21,7 @@ By taras on 04.14.05 9:00 pm
 订阅此文章的留言RSS。
 TrackBack URI
 写留言
-自动分行和段，email也不会显示出来，允许的HTML标签： <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong>
+自动分行和段，email也不会显示出来，允许的HTML标签： 
 名字 （必须）
 E-mail （必须）
 URI

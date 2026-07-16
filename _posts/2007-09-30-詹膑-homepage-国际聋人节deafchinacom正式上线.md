@@ -1,10 +1,9 @@
 ---
-title: "■ 詹膑 ■ Homepage » 国际聋人节，DeafChina.com正式上线"
+title: "国际聋人节，DeafChina.com正式上线"
 date: 2007-09-30 12:00:00 +0800
 categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/410"
 ---
-
 
 ■ 詹膑 ■ Homepage » 国际聋人节，DeafChina.com正式上线
 ■ 詹膑 ■ Homepage摩顶放踵，养浩然气

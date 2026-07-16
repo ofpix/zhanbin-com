@@ -1,10 +1,9 @@
 ---
-title: "SNS，让人很忙 : ■ 詹膑 ■ Homepage"
+title: "SNS，让人很忙"
 date: 2008-03-17 12:00:00 +0800
 categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/457"
 ---
-
 
 SNS，让人很忙 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -97,7 +96,7 @@ Comments
 9 Responses to “SNS，让人很忙”
 秦锋 on
 March 17th, 2008
-我管这个叫“山寨”现象：http://qinfengblog.info/2008/03/bbs-discuz-bbsbbsbbs-bbsbbsbbsbbsid.html
+我管这个叫“山寨”现象：
 雀巢 on
 March 17th, 2008
 什么时候sns能互联互通就好了
@@ -118,10 +117,10 @@ March 18th, 2008
 […] 　　昨日方言期待“个人站长”中涌现一批“CEO”出来，就连詹膑老师也按捺不住，也要弄个山寨王当当，可是万万没有想到，久仰久仰的谢文先生捷足先登，成为了“一起”的CEO。 […]
 Chinese on
 March 23rd, 2008
-I watch the Youtube video, http://www.youtube.com/watch?v=x9QNKB34cJo it’s very great.
+I watch the Youtube video, it’s very great.
 some suggestions to all Chinese: 1. to avoid the unexpected (after all, Youtube is a biz, bribe can take the video down) so use the distrubtional mode.
 2. bloggers can blog it, digg it, stumble it.
-3, some related material http://www.theage.com.au/news/business/behind-dalai-lamas-holy-cloak/2007/05/22/1179601410290.html agian, bloggers can blog it, digg it, stumble it. Also use the distrubtional mode, cos bribe can take it down
+3, some related material agian, bloggers can blog it, digg it, stumble it. Also use the distrubtional mode, cos bribe can take it down
 yan on
 March 25th, 2008
 我也觉得你特忙。

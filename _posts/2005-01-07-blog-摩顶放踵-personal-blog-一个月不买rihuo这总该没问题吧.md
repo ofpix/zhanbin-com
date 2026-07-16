@@ -5,263 +5,124 @@ categories: [blog]
 ---
 
 ■ 摩顶放踵 ■ personal blog » 一个月不买rihuo，这，总该没问题吧
-	
-	
-	
-	
-	
-		
 
-■ [http://zhanbin.com](詹膑·homepage) ■ [http://blog.zhanbin.com](摩顶放踵·personal blog) ■ [http://media.zhanbin.com](广泛传播·media blog) ■ [http://edu.zhanbin.com](亦言亦行·edu blog) ■
+■ ■ ■ ■ ■
 
-	[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
- 
+四月 7th, 2005
 
-	
-		
-			
-			
-		
-	
+收到朋友的来信，我觉得一个月不买rihuo，具有良好的可行性，只要把相机摄像机之类的放到以后买，基本上其他东西都有替代品。全文转载如下：
 
-	
-		[http://blog.zhanbin.com](首页)
-		[http://blog.zhanbin.com/index.php/guestbook/](留言本)
-[http://blog.zhanbin.com/index.php/archives/](Archives)
-	[http://blog.zhanbin.com/index.php/89.html](从头阅读大小白)
 
-	
-	
-
-		[http://blog.zhanbin.com/index.php/24.html](一个月不买rihuo，这，总该没问题吧)
-
-		
-		   		四月 7th, 2005
-   		
-   		   		
-
-			收到朋友的来信，我觉得一个月不买rihuo，具有良好的可行性，只要把相机摄像机之类的放到以后买，基本上其他东西都有替代品。全文转载如下：
-
-	
 致全国人民倡议书：
 
-	希望所有中国人在5月1日至6月1日期间，停止购买所有rihuo。时间之所以定在1个月以后，是为了是这个通告使更多的有骨气的中国人知道。那些对不愿意买国货，对rihuo有感情的人，也强烈要求你们能在 5月里有所收敛，配合 抵ri联盟一起抵制rihuo。 
+希望所有中国人在5月1日至6月1日期间，停止购买所有rihuo。时间之所以定在1个月以后，是为了是这个通告使更多的有骨气的中国人知道。那些对不愿意买国货，对rihuo有感情的人，也强烈要求你们能在 5月里有所收敛，配合 抵ri联盟一起抵制rihuo。 
 
-	以现在的现实情况，要求所有人都彻底的抵制rihuo，恐怕难以实现。但是，在一个阶段的时间里，所有的中国人万完全全、彻彻底底抵制rihuo是完全可能的。现在我们就行动起来，告知我们身边更多的亲戚朋友同学同事。集合全世界中国人的力量在五月里，给丑陋的japan狠狠第一击。 
+以现在的现实情况，要求所有人都彻底的抵制rihuo，恐怕难以实现。但是，在一个阶段的时间里，所有的中国人万完全全、彻彻底底抵制rihuo是完全可能的。现在我们就行动起来，告知我们身边更多的亲戚朋友同学同事。集合全世界中国人的力量在五月里，给丑陋的japan狠狠第一击。 
 
-	如果抵制rihuo一场战争，那么5月份是一个战役。只要行动我们就会取胜。 
+如果抵制rihuo一场战争，那么5月份是一个战役。只要行动我们就会取胜。 
 
-	japan松下有一位高官说过：即使我们不去拜靖国神社，韩国人也不会买我们的产品，但不管我们再怎样的去拜靖国神社，中国人照样会买我们的产品。 
+japan松下有一位高官说过：即使我们不去拜靖国神社，韩国人也不会买我们的产品，但不管我们再怎样的去拜靖国神社，中国人照样会买我们的产品。 
 
-	一句让中国人从头凉到脚的话。每买一百元rihuo就会给japan政府送去5元钱，让ri自卫队多造10颗子弹，多印8页反华教科书。 
+一句让中国人从头凉到脚的话。每买一百元rihuo就会给japan政府送去5元钱，让ri自卫队多造10颗子弹，多印8页反华教科书。 
 
-	如果你买japan汽车，将来开上中国街头的japan坦克就是你造的，如果你买japan橱具，将来射穿同胞头颅的子弹就是你造的，如果你买japan电视音响，将来就会在战地喇叭中听到同胞被杀的哀鸣! 
+如果你买japan汽车，将来开上中国街头的japan坦克就是你造的，如果你买japan橱具，将来射穿同胞头颅的子弹就是你造的，如果你买japan电视音响，将来就会在战地喇叭中听到同胞被杀的哀鸣! 
 
-	请传给20 个人,支持中国,抵制rihuo， 就算没有回报，这也是你的义务！ 
+请传给20 个人,支持中国,抵制rihuo， 就算没有回报，这也是你的义务！ 
 
-	是中国人的请把这个消息传下去，谢谢！
+是中国人的请把这个消息传下去，谢谢！
 
-		Entry Filed under: [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)
+Entry Filed under: 
 
-   
+9 Comments
 
-	9 Comments
+1.
 
-	
 
-	
-	
-	1.
+MeetRain  |  四月 7th, 2005 at 9:14 pm
 
-	
-	MeetRain  |  四月 7th, 2005 at 9:14 pm
+日本松下有一位高官说过：即使我们不去拜靖国神社，韩国人也不会买我们的产品，但不管我们再怎样的去拜靖国神社，中国人照样会买我们的产品。 
 
-			日本松下有一位高官说过：即使我们不去拜靖国神社，韩国人也不会买我们的产品，但不管我们再怎样的去拜靖国神社，中国人照样会买我们的产品。 
+太过分了，这个变态民族。
 
-	太过分了，这个变态民族。
+每次都喊着要抵制日货，但是光喊就行了吗，我们是不是要有所行动呢？ 
 
-	每次都喊着要抵制日货，但是光喊就行了吗，我们是不是要有所行动呢？ 
+其他国家的人在谈到日货的时候直接想到的是高科技，高质量，提及中国产品就只有假冒伪劣。
 
-	其他国家的人在谈到日货的时候直接想到的是高科技，高质量，提及中国产品就只有假冒伪劣。
+我只想说一句：“动一动吧“
 
-	我只想说一句：“动一动吧“
+2.
 
-		
 
-	
+ |  四月 7th, 2005 at 10:56 pm
 
-	
-	2.
+致全国人民倡议书
 
-	
-	[http://www.cathome01.com/asiapan/archives/2005/04/post_148.html](Asiapan&hellip)  |  四月 7th, 2005 at 10:56 pm
+我不太清楚这个一个月的抵拒活动除了对日货的打击外，是否会有其他副作用，比如对中国…
 
-			致全国人民倡议书
+3.
 
-	我不太清楚这个一个月的抵拒活动除了对日货的打击外，是否会有其他副作用，比如对中国…
 
-		
+LUCIA  |  四月 8th, 2005 at 7:29 pm
 
-	
+不让男朋友开本田了
 
-	
-	3.
+4.
 
-	
-	LUCIA  |  四月 8th, 2005 at 7:29 pm
 
-			不让男朋友开本田了
+ |  四月 9th, 2005 at 12:43 pm
 
-		
+[…] 都困难。所以，blog能够很轻松地加入到“抗日”的行列中来，我和asiapan可以大方转载“致全国人民倡议书”，应该有很多blogger都会最 […]
 
-	
+5.
 
-	
-	4.
 
-	
-	[http://media.zhanbin.com/index.php/45.html](■ 广 泛 传 播 ■ m&hellip)  |  四月 9th, 2005 at 12:43 pm
+jane  |  四月 9th, 2005 at 9:09 pm
 
-			[…] 都困难。所以，blog能够很轻松地加入到“抗日”的行列中来，我和asiapan可以大方转载“致全国人民倡议书”，应该有很多blogger都会最 […]
+我觉得我们中国人应该一直齐心，把日本货赶出中国，从我做起！
 
-		
+6.
 
-	
 
-	
-	5.
+ |  四月 9th, 2005 at 10:00 pm
 
-	
-	jane  |  四月 9th, 2005 at 9:09 pm
+[…] ：danwei.org 　　见Topku的文章“ 中关村的抵制日货游行 ”。有人倡议所有中国人在5月1日至6月1日期间停止购买所有日货。 posted […]
 
-			我觉得我们中国人应该一直齐心，把日本货赶出中国，从我做起！
+7.
 
-		
 
-	
+ |  四月 11th, 2005 at 1:40 pm
 
-	
-	6.
+[…] 误为止。– David Yin’s BLOG 我必须提一下几个朋友的倡议：“从 5 月 1 日到 6 月 1 日不买日货”(see also) 。另外还有朋友列出了日货的列表 […]
 
-	
-	[http://pbxm.com.ru/?p=19](Jay’s  blog »&hellip)  |  四月 9th, 2005 at 10:00 pm
+8.
 
-			[…] ：danwei.org 　　见Topku的文章“ 中关村的抵制日货游行 ”。有人倡议所有中国人在5月1日至6月1日期间停止购买所有日货。                           posted […]
 
-		
+horse)  |  四月 11th, 2005 at 10:17 pm
 
-	
+to某人：我删除了留言，因为那肯定能给我带来麻烦。最关键，基本是网上的陈词滥调，而且和我上面转贴的毫无关系。就像人家说你做错了事情，你说人家有脚气一样，不是针对性的讨论。请勿再贴，多谢。
 
-	
-	7.
+9.
 
-	
-	[http://wang.blogsome.com/2005/04/11/anti-japan/](鹤冲天手札  :: 抗&hellip)  |  四月 11th, 2005 at 1:40 pm
 
-			[…] 误为止。– David Yin’s BLOG 	我必须提一下几个朋友的倡议：“从 5 月 1 日到 6 月 1 日不买日货”(see also) 。另外还有朋友列出了日货的列表 […]
+horse)  |  四月 11th, 2005 at 10:23 pm
 
-		
+to everybody，请不要在此留任何过激言论或者不合适言论，多谢手下留情….这只是个人网站，呵呵。
 
-	
-
-	
-	8.
-
-	
-	horse)  |  四月 11th, 2005 at 10:17 pm
-
-			to某人：我删除了留言，因为那肯定能给我带来麻烦。最关键，基本是网上的陈词滥调，而且和我上面转贴的毫无关系。就像人家说你做错了事情，你说人家有脚气一样，不是针对性的讨论。请勿再贴，多谢。
-
-		
-
-	
-
-	
-	9.
-
-	
-	horse)  |  四月 11th, 2005 at 10:23 pm
-
-			to everybody，请不要在此留任何过激言论或者不合适言论，多谢手下留情….这只是个人网站，呵呵。
-
-		
-
-	
-
-	[http://blog.zhanbin.com/index.php/24.html/trackback/](Trackback this post)
-
- 
- 
-
-		
-		
-
-[http://blog.zhanbin.com/index.php/89.html](大小白)
 本故事纯属虚构，切勿对号入座
-[http://www.feedsky.com/feed/daxiaobai](故事的rss)
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
 
 信息台
-[http://ofblog.com/wzp](
-最佳财经观察Blog)
 
-[http://ofblog.com/wzp/](王正鹏·财经夜谭)
+订阅 [)
 
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-订阅 [http://feeds.feedburner.com/zhanbin]()
-
-[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
-
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin](Newsgator订阅)
-
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
-
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
-
-[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
-Rojo订阅)
-
-[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
-
-[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
-
-[http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
-[http://feeds.feedburner.com/zhanbin]()
-
-			
-			
+[)
 
 广告:
 
-			
+Most Recent Posts
 
-		
-		
+如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
+商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
 
-	Most Recent Posts
+© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
-	
-	[http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)
-[http://blog.zhanbin.com/index.php/98.html](▲大白啊，出来混，很多事情，早晚都是要还的)
-[http://blog.zhanbin.com/index.php/97.html](▲小白揭发说大白记得十辈子的事情)
-[http://blog.zhanbin.com/index.php/95.html](请为环保记者刘鉴强投票)
-[http://blog.zhanbin.com/index.php/94.html](▲兔大白说：单恋也是受虐)
-[http://blog.zhanbin.com/index.php/93.html](▲被小女生欺负的小男生通常会爱上那个小女生)
-[http://blog.zhanbin.com/index.php/92.html](▲小白爱上归芸了)
-[http://blog.zhanbin.com/index.php/91.html](▲我的专栏是大白捉刀的)
-[http://blog.zhanbin.com/index.php/90.html](▲兔子为什么吃肉)
-[http://blog.zhanbin.com/index.php/88.html](▲龟儿子还是兔崽子)
-	
-
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
-[http://edu.zhanbin.com](■ 亦言亦行 ■ edu blog)商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
-
- 
-
- 
-
-	© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
-
-	Design based on [http://www.kingcosmonaut.de/blix/](Blix) Theme by [http://z2studio.com](Z2studio). Powered by [http://www.wordpress.org/](WordPress) . [http://blog.zhanbin.com/wp-login.php](登录)
+Design based on Theme by . Powered by .

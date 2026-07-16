@@ -1,10 +1,9 @@
 ---
-title: "blogbus与乌镇 : ■ 詹膑 ■ Homepage"
+title: "blogbus与乌镇"
 date: 2007-12-16 12:00:00 +0800
 categories: [个人文集]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/431"
 ---
-
 
 blogbus与乌镇 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage

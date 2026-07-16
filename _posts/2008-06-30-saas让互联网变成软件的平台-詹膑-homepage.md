@@ -1,10 +1,9 @@
 ---
-title: "SaaS让互联网变成软件的平台 : ■ 詹膑 ■ Homepage"
+title: "SaaS让互联网变成软件的平台"
 date: 2008-06-30 12:00:00 +0800
 categories: [传媒]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/469"
 ---
-
 
 SaaS让互联网变成软件的平台 : ■ 詹膑 ■ Homepage
 ■ 詹膑 ■ Homepage
@@ -146,11 +145,11 @@ July 23rd, 2008
 软文
 Jimmy on
 July 28th, 2008
-可以关注一下用友软件的SaaS网站伟库 http://www.wecoo.com/
+可以关注一下用友软件的SaaS网站伟库 
 123 on
 August 10th, 2008
 SAAS研究会：
-http://blog.sina.com.cn/saasfun
+
 kacifa on
 August 14th, 2008
 呵,在为火炬宣传.

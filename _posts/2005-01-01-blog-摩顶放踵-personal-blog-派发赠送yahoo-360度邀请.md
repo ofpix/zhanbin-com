@@ -5,609 +5,363 @@ categories: [blog]
 ---
 
 ■ 摩顶放踵 ■ personal blog » 派发、赠送yahoo 360度邀请
-	
-	
-	
-	
-	
-		
 
-■ [http://zhanbin.com](詹膑·homepage) ■ [http://blog.zhanbin.com](摩顶放踵·personal blog) ■ [http://media.zhanbin.com](广泛传播·media blog) ■ [http://edu.zhanbin.com](亦言亦行·edu blog) ■
+■ ■ ■ ■ ■
 
-	[http://blog.zhanbin.com](■ 摩顶放踵 ■ personal blog)
- 
+四月 1st, 2005
 
-	
-		
-			
-			
-		
-	
+在此文后面留言，得要email，好像有100个诶，晚上一起派发～凡接到邀请者，以后来本站要多留言哦～
 
-	
-		[http://blog.zhanbin.com](首页)
-		[http://blog.zhanbin.com/index.php/guestbook/](留言本)
-[http://blog.zhanbin.com/index.php/archives/](Archives)
-	[http://blog.zhanbin.com/index.php/89.html](从头阅读大小白)
+update：已经可以自由申请。
 
-	
-	
+Entry Filed under: 
 
-		[http://blog.zhanbin.com/index.php/20.html](派发、赠送yahoo 360度邀请)
+106 Comments [#commentform](Add your own)
 
-		
-		   		四月 1st, 2005
-   		
-   		   		
+1.
 
-			在此文后面留言，得要email，好像有100个诶，晚上一起派发～凡接到邀请者，以后来本站要多留言哦～
 
-	update：已经可以自由申请。
+wangwenyou)  |  四月 1st, 2005 at 10:33 am
 
-		Entry Filed under: [http://blog.zhanbin.com/index.php/category/uncategorized/](Uncategorized)
+先要一个，谢谢了：）
 
-   
+2.
 
-	106 Comments [#commentform](Add your own)
 
-	
+Henry)  |  四月 1st, 2005 at 12:01 pm
 
-	
-	
-	1.
+也来要一个。
 
-	
-	wangwenyou)  |  四月 1st, 2005 at 10:33 am
+3.
 
-			先要一个，谢谢了：）
 
-		
+CrazyMan  |  四月 1st, 2005 at 12:26 pm
 
-	
-
-	
-	2.
-
-	
-	Henry)  |  四月 1st, 2005 at 12:01 pm
-
-			也来要一个。
-
-		
-
-	
-
-	
-	3.
-
-	
-	CrazyMan  |  四月 1st, 2005 at 12:26 pm
-
-			也给我一个吧
+也给我一个吧
 
 谢谢
 
 [mailto:fkrl@sohu.com](fkrl@sohu.com)
 
-		
+4.
 
-	
 
-	
-	4.
+horse)  |  四月 1st, 2005 at 12:44 pm
 
-	
-	horse)  |  四月 1st, 2005 at 12:44 pm
+好像得要email啊…留言email…
 
-			好像得要email啊…留言email…
+5.
 
-		
 
-	
+sunny  |  四月 1st, 2005 at 1:06 pm
 
-	
-	5.
-
-	
-	sunny  |  四月 1st, 2005 at 1:06 pm
-
-			我想要一个，十分感谢！
+我想要一个，十分感谢！
 
 我的EMAIL：sunnyfung@hotmail.com
 
-		
+6.
 
-	
 
-	
-	6.
+ctiam  |  四月 1st, 2005 at 2:21 pm
 
-	
-	ctiam  |  四月 1st, 2005 at 2:21 pm
-
-			我也想要，谢谢
+我也想要，谢谢
 
 我的mail是cityfat@gmail.com
 
-		
+7.
 
-	
 
-	
-	7.
+ripplebobo  |  四月 1st, 2005 at 3:03 pm
 
-	
-	ripplebobo  |  四月 1st, 2005 at 3:03 pm
+给一个吧，thanks！
 
-			给一个吧，thanks！
+8.
 
-		
 
-	
+ripplebobo  |  四月 1st, 2005 at 3:04 pm
 
-	
-	8.
+忘了email：qq_ripple@sina.com
 
-	
-	ripplebobo  |  四月 1st, 2005 at 3:04 pm
+9.
 
-			忘了email：qq_ripple@sina.com
 
-		
+Lotos.Lee  |  四月 1st, 2005 at 4:06 pm
 
-	
+test以下，thx
 
-	
-	9.
+10.
 
-	
-	Lotos.Lee  |  四月 1st, 2005 at 4:06 pm
 
-			test以下，thx
+aj4x  |  四月 1st, 2005 at 5:45 pm
 
-		
+想要一个，谢谢你。
 
-	
+aj4×2003@yahoo.com
 
-	
-	10.
+11.
 
-	
-	aj4x  |  四月 1st, 2005 at 5:45 pm
 
-			想要一个，谢谢你。
+aj4x  |  四月 1st, 2005 at 5:46 pm
 
-	aj4×2003@yahoo.com
+想要一个，谢谢你。
 
-		
+aj4×2003@yahoo.com
 
-	
+12.
 
-	
-	11.
 
-	
-	aj4x  |  四月 1st, 2005 at 5:46 pm
+heavenlaughter@126.com)  |  四月 1st, 2005 at 7:26 pm
 
-			想要一个，谢谢你。
-
-	aj4×2003@yahoo.com
-
-		
-
-	
-
-	
-	12.
-
-	
-	heavenlaughter@126.com)  |  四月 1st, 2005 at 7:26 pm
-
-			[mailto:heavenlaughter@126.com](heavenlaughter@126.com)
+[mailto:heavenlaughter@126.com](heavenlaughter@126.com)
 
 谢谢了
 
-		
+13.
 
-	
 
-	
-	13.
+FM  |  四月 1st, 2005 at 7:56 pm
 
-	
-	FM  |  四月 1st, 2005 at 7:56 pm
+我也要一个，多谢了。
 
-			我也要一个，多谢了。
+14.
 
-		
 
-	
+FM  |  四月 1st, 2005 at 7:57 pm
 
-	
-	14.
-
-	
-	FM  |  四月 1st, 2005 at 7:57 pm
-
-			我也要一个，多谢了。
+我也要一个，多谢了。
 
 [mailto:fm0915@gmail.com](fm0915@gmail.com)
 
-		
+15.
 
-	
 
-	
-	15.
+eric  |  四月 1st, 2005 at 8:04 pm
 
-	
-	eric  |  四月 1st, 2005 at 8:04 pm
-
-			很想用！
+很想用！
 
 谢谢！
 
-		
+16.
 
-	
 
-	
-	16.
+Norasun  |  四月 1st, 2005 at 9:45 pm
 
-	
-	Norasun  |  四月 1st, 2005 at 9:45 pm
+老詹，那是啥玩意啊？俺想试试，呵呵，Email留下了：norasunATgmail.com
 
-			老詹，那是啥玩意啊？俺想试试，呵呵，Email留下了：norasunATgmail.com
+17.
 
-		
 
-	
+Norasun  |  四月 1st, 2005 at 9:47 pm
 
-	
-	17.
+老詹，那是啥玩意啊？俺也想要一个试试，谢谢咯！
 
-	
-	Norasun  |  四月 1st, 2005 at 9:47 pm
+18.
 
-			老詹，那是啥玩意啊？俺也想要一个试试，谢谢咯！
 
-		
+horse)  |  四月 1st, 2005 at 10:07 pm
 
-	
+上面留言的邀请均已发出…
 
-	
-	18.
+19.
 
-	
-	horse)  |  四月 1st, 2005 at 10:07 pm
 
-			上面留言的邀请均已发出…
+mimitech)  |  四月 1st, 2005 at 10:49 pm
 
-		
+请发送一个给我，非常感谢
 
-	
+mimitech at gmail.com
 
-	
-	19.
+20.
 
-	
-	mimitech)  |  四月 1st, 2005 at 10:49 pm
 
-			请发送一个给我，非常感谢
+brick)  |  四月 2nd, 2005 at 1:33 am
 
-	mimitech at gmail.com
-
-		
-
-	
-
-	
-	20.
-
-	
-	brick)  |  四月 2nd, 2005 at 1:33 am
-
-			我要一个 thanks
+我要一个 thanks
 
 对了 主人现在在那个学校呀 xixi
 
-		
+21.
 
-	
 
-	
-	21.
+BSDMAN  |  四月 2nd, 2005 at 2:43 am
 
-	
-	BSDMAN  |  四月 2nd, 2005 at 2:43 am
-
-			要一个THX
+要一个THX
 
 [mailto:BSDMAN@MSN.COM](BSDMAN@MSN.COM)
 
-		
+22.
 
-	
 
-	
-	22.
+aj4x  |  四月 2nd, 2005 at 6:08 am
 
-	
-	aj4x  |  四月 2nd, 2005 at 6:08 am
+已经开始使用了。谢谢！
 
-			已经开始使用了。谢谢！
+23.
 
-		
 
-	
+horse)  |  四月 2nd, 2005 at 7:55 am
 
-	
-	23.
+北京服装学院…… send out all
 
-	
-	horse)  |  四月 2nd, 2005 at 7:55 am
+24.
 
-			北京服装学院…… send out all
 
-		
+ |  四月 2nd, 2005 at 8:25 am
 
-	
+[…] eso那里得到的邀请，试用了一下，觉得方便快捷，于是在自己的blog上派发赠送yahoo 360度邀请，继续测试。暂还没有深入使用blog和photo等其它功能， […]
 
-	
-	24.
+25.
 
-	
-	[http://media.zhanbin.com/index.php/39.html](■ 广 泛 传 播 ■ m&hellip)  |  四月 2nd, 2005 at 8:25 am
 
-			[…] eso那里得到的邀请，试用了一下，觉得方便快捷，于是在自己的blog上派发赠送yahoo 360度邀请，继续测试。暂还没有深入使用blog和photo等其它功能， […]
+yanbing  |  四月 2nd, 2005 at 9:14 am
 
-		
-
-	
-
-	
-	25.
-
-	
-	yanbing  |  四月 2nd, 2005 at 9:14 am
-
-			谢谢照顾！
+谢谢照顾！
 
 [mailto:yanbing2002@hotmail.com](yanbing2002@hotmail.com)
 
-		
+26.
 
-	
 
-	
-	26.
+Rocky)  |  四月 2nd, 2005 at 1:21 pm
 
-	
-	Rocky)  |  四月 2nd, 2005 at 1:21 pm
+谢谢，我要一个体验一下：rockychen21 at gmail dot com
 
-			谢谢，我要一个体验一下：rockychen21 at gmail dot com
+27.
 
-		
 
-	
+murphy  |  四月 2nd, 2005 at 1:46 pm
 
-	
-	27.
+你好horse，就是周四晚在学校门口和木先生同你聊了两小时的，叫我Murphy就行。1＋1＞2的道理是不会错的，彼晚多有裨益，希望可以常聊。如果可以的话请给个邀请，3X。
 
-	
-	murphy  |  四月 2nd, 2005 at 1:46 pm
+28.
 
-			你好horse，就是周四晚在学校门口和木先生同你聊了两小时的，叫我Murphy就行。1＋1＞2的道理是不会错的，彼晚多有裨益，希望可以常聊。如果可以的话请给个邀请，3X。
 
-		
+twelve  |  四月 2nd, 2005 at 2:23 pm
 
-	
-
-	
-	28.
-
-	
-	twelve  |  四月 2nd, 2005 at 2:23 pm
-
-			[mailto:logtwelve@yahoo.com](logtwelve@yahoo.com)
+[mailto:logtwelve@yahoo.com](logtwelve@yahoo.com)
 
 要一个
 
 谢
 
-		
+29.
 
-	
 
-	
-	29.
+boywfh  |  四月 2nd, 2005 at 4:17 pm
 
-	
-	boywfh  |  四月 2nd, 2005 at 4:17 pm
+我要一个 谢谢了～
 
-			我要一个 谢谢了～
+30.
 
-		
 
-	
+boywfh  |  四月 2nd, 2005 at 4:18 pm
 
-	
-	30.
-
-	
-	boywfh  |  四月 2nd, 2005 at 4:18 pm
-
-			[mailto:boywfh@gmail.com](boywfh@gmail.com)
+[mailto:boywfh@gmail.com](boywfh@gmail.com)
 
 刚才没有显示出来邮件地址
 
-		
+31.
 
-	
 
-	
-	31.
+horse)  |  四月 2nd, 2005 at 4:45 pm
 
-	
-	horse)  |  四月 2nd, 2005 at 4:45 pm
+上面均已发送
 
-			上面均已发送
+32.
 
-		
 
-	
+cctv  |  四月 2nd, 2005 at 5:03 pm
 
-	
-	32.
+要一个非常的感谢！！li98311@etang.com
 
-	
-	cctv  |  四月 2nd, 2005 at 5:03 pm
+33.
 
-			要一个非常的感谢！！li98311@etang.com
 
-		
+homlee  |  四月 2nd, 2005 at 5:18 pm
 
-	
-
-	
-	33.
-
-	
-	homlee  |  四月 2nd, 2005 at 5:18 pm
-
-			我也要一个
+我也要一个
 
 [mailto:homleehom@126.com](homleehom@126.com)
 
-		
+34.
 
-	
 
-	
-	34.
+lovemoonhan  |  四月 2nd, 2005 at 8:02 pm
 
-	
-	lovemoonhan  |  四月 2nd, 2005 at 8:02 pm
+敬请给我一个，谢谢！
 
-			敬请给我一个，谢谢！
+35.
 
-		
 
-	
+lovemoonhan  |  四月 2nd, 2005 at 8:03 pm
 
-	
-	35.
+敬请给我一个，谢谢！lj2vip@yahoo.com
 
-	
-	lovemoonhan  |  四月 2nd, 2005 at 8:03 pm
+36.
 
-			敬请给我一个，谢谢！lj2vip@yahoo.com
 
-		
+lj  |  四月 2nd, 2005 at 8:04 pm
 
-	
+谢谢请给一个ljme@msn.com
 
-	
-	36.
+37.
 
-	
-	lj  |  四月 2nd, 2005 at 8:04 pm
 
-			谢谢请给一个ljme@msn.com
+yesto1983  |  四月 2nd, 2005 at 9:06 pm
 
-		
-
-	
-
-	
-	37.
-
-	
-	yesto1983  |  四月 2nd, 2005 at 9:06 pm
-
-			请给我一个，谢谢！！
+请给我一个，谢谢！！
 
 [mailto:yesto1983@yahoo.com](yesto1983@yahoo.com)
 
-		
+38.
 
-	
 
-	
-	38.
+yeahlo  |  四月 2nd, 2005 at 9:21 pm
 
-	
-	yeahlo  |  四月 2nd, 2005 at 9:21 pm
+请给我一个。我也对他有很大兴趣哦。
 
-			请给我一个。我也对他有很大兴趣哦。
+39.
 
-		
 
-	
+Glamous  |  四月 2nd, 2005 at 11:05 pm
 
-	
-	39.
+[mailto:glamous_eye@yahoo.com.cn](glamous_eye@yahoo.com.cn)
 
-	
-	Glamous  |  四月 2nd, 2005 at 11:05 pm
+Thanks.
 
-			[mailto:glamous_eye@yahoo.com.cn](glamous_eye@yahoo.com.cn)
+40.
 
-	Thanks.
 
-		
+qqhugo  |  四月 2nd, 2005 at 11:40 pm
 
-	
-
-	
-	40.
-
-	
-	qqhugo  |  四月 2nd, 2005 at 11:40 pm
-
-			[mailto:qqhugo@163.com](qqhugo@163.com)
+[mailto:qqhugo@163.com](qqhugo@163.com)
 
 谢谢~~
 
-		
+41.
 
-	
 
-	
-	41.
+peter  |  四月 3rd, 2005 at 12:07 am
 
-	
-	peter  |  四月 3rd, 2005 at 12:07 am
-
-			还有剩吗？也给我一个=]
+还有剩吗？也给我一个=]
 
 谢谢
 
-		
+42.
 
-	
 
-	
-	42.
+amipro  |  四月 3rd, 2005 at 12:40 am
 
-	
-	amipro  |  四月 3rd, 2005 at 12:40 am
-
-			还有吗，能给我一个吗？谢谢老大啦
+还有吗，能给我一个吗？谢谢老大啦
 
 [mailto:amipro@gmail.com](amipro@gmail.com)
 
-		
+43.
 
-	
 
-	
-	43.
+风烟讽喻)  |  四月 3rd, 2005 at 4:46 am
 
-	
-	风烟讽喻)  |  四月 3rd, 2005 at 4:46 am
-
-			姗姗来迟了
+姗姗来迟了
 
 不知道还有没
 
@@ -619,948 +373,561 @@ PS：刚才检查到有你曾在那我申请过连接
 
 MAIL：admin@kumeir.com
 
-		
+44.
 
-	
 
-	
-	44.
+王爱平  |  四月 3rd, 2005 at 7:45 am
 
-	
-	王爱平  |  四月 3rd, 2005 at 7:45 am
-
-			我急需要一个啊 能发给我一个吗？
+我急需要一个啊 能发给我一个吗？
 
 [mailto:aiping@qq.com](aiping@qq.com)
 
-		
+45.
 
-	
 
-	
-	45.
+horse)  |  四月 3rd, 2005 at 9:02 am
 
-	
-	horse)  |  四月 3rd, 2005 at 9:02 am
+上述均已发出，如果未收到请联系。
 
-			上述均已发出，如果未收到请联系。
+46.
 
-		
 
-	
+风烟讽喻)  |  四月 3rd, 2005 at 9:04 am
 
-	
-	46.
-
-	
-	风烟讽喻)  |  四月 3rd, 2005 at 9:04 am
-
-			十分感谢
+十分感谢
 
 开始琢磨中
 
-		
+47.
 
-	
 
-	
-	47.
+Albert  |  四月 3rd, 2005 at 9:17 am
 
-	
-	Albert  |  四月 3rd, 2005 at 9:17 am
-
-			谢谢啊
+谢谢啊
 
 [mailto:minjingshu@yahoo.com](minjingshu@yahoo.com)
 
-		
+48.
 
-	
 
-	
-	48.
+internetlaw  |  四月 3rd, 2005 at 9:23 am
 
-	
-	internetlaw  |  四月 3rd, 2005 at 9:23 am
-
-			请给我一个，谢谢
+请给我一个，谢谢
 
 [mailto:pkuinternetlaw@yahoo.com.cn](pkuinternetlaw@yahoo.com.cn)
 
-		
+49.
 
-	
 
-	
-	49.
+Lee  |  四月 3rd, 2005 at 11:24 am
 
-	
-	Lee  |  四月 3rd, 2005 at 11:24 am
-
-			还有吗?可否给我一个?谢谢!
+还有吗?可否给我一个?谢谢!
 
 [mailto:shmilubb@gmail.com](shmilubb@gmail.com)
 
-		
+50.
 
-	
 
-	
-	50.
+SUNNY  |  四月 3rd, 2005 at 11:45 am
 
-	
-	SUNNY  |  四月 3rd, 2005 at 11:45 am
+我也想体验一下360，可以给我一个吗？谢谢
 
-			我也想体验一下360，可以给我一个吗？谢谢
+51.
 
-		
 
-	
+SUNNY  |  四月 3rd, 2005 at 11:46 am
 
-	
-	51.
-
-	
-	SUNNY  |  四月 3rd, 2005 at 11:46 am
-
-			我也想体验一下360，可以给我一个吗？谢谢
+我也想体验一下360，可以给我一个吗？谢谢
 
 不好意思，我的EMAIL：pansyivy@hotmail.com
 
-		
+52.
 
-	
 
-	
-	52.
+Hma  |  四月 3rd, 2005 at 1:37 pm
 
-	
-	Hma  |  四月 3rd, 2005 at 1:37 pm
-
-			请给我一个，谢谢！
+请给我一个，谢谢！
 
 [mailto:wapp@vip.163.com](wapp@vip.163.com)
 
-		
+53.
 
-	
 
-	
-	53.
+XQuery  |  四月 3rd, 2005 at 1:58 pm
 
-	
-	XQuery  |  四月 3rd, 2005 at 1:58 pm
-
-			想要一个，谢谢！
+想要一个，谢谢！
 
 [mailto:paladinliao@yahoo.com.cn](paladinliao@yahoo.com.cn)
 
-		
+54.
 
-	
 
-	
-	54.
+木犸)  |  四月 3rd, 2005 at 3:55 pm
 
-	
-	木犸)  |  四月 3rd, 2005 at 3:55 pm
+刚接触Blog没多久，就听说Yahoo也弄Blog了，不知道会不会也和MSN的那样太官化~也请给我一个邀请吧~ 
 
-			刚接触Blog没多久，就听说Yahoo也弄Blog了，不知道会不会也和MSN的那样太官化~也请给我一个邀请吧~  
+muma.wong+blog@gmail.com
 
-	muma.wong+blog@gmail.com
+55.
 
-		
 
-	
+fychao  |  四月 3rd, 2005 at 5:38 pm
 
-	
-	55.
-
-	
-	fychao  |  四月 3rd, 2005 at 5:38 pm
-
-			我也能跟你要一个吗? 谢谢喔~
+我也能跟你要一个吗? 谢谢喔~
 
 [mailto:littledd@gmail.com](littledd@gmail.com)
 
-		
+56.
 
-	
 
-	
-	56.
+韩坪良  |  四月 3rd, 2005 at 7:03 pm
 
-	
-	韩坪良  |  四月 3rd, 2005 at 7:03 pm
-
-			我想要一个
+我想要一个
 
 [mailto:nkpp@163.com](nkpp@163.com)
 
-		
+57.
 
-	
 
-	
-	57.
+yesto1983  |  四月 3rd, 2005 at 8:03 pm
 
-	
-	yesto1983  |  四月 3rd, 2005 at 8:03 pm
-
-			对不起，我的邮箱少加了.cn
+对不起，我的邮箱少加了.cn
 
 能否再发一次
 
 谢谢！！yesto1983@yahoo.com.cn
 
-		
+58.
 
-	
 
-	
-	58.
+cycxf  |  四月 3rd, 2005 at 8:29 pm
 
-	
-	cycxf  |  四月 3rd, 2005 at 8:29 pm
+来晚了,不知还有没有
 
-			来晚了,不知还有没有
+59.
 
-		
 
-	
+alex.jie  |  四月 3rd, 2005 at 8:31 pm
 
-	
-	59.
+alex.jie
 
-	
-	alex.jie  |  四月 3rd, 2005 at 8:31 pm
+谢谢您！！！
 
-			alex.jie
+60.
 
-	谢谢您！！！
 
-		
+alex.jie  |  四月 3rd, 2005 at 8:32 pm
 
-	
-
-	
-	60.
-
-	
-	alex.jie  |  四月 3rd, 2005 at 8:32 pm
-
-			alex.jie
+alex.jie
 
 [mailto:alex.jie@gmail.com](alex.jie@gmail.com)
 
-	晕刚才没写邮箱地址
+晕刚才没写邮箱地址
 
-		
+61.
 
-	
 
-	
-	61.
+joynow  |  四月 3rd, 2005 at 8:33 pm
 
-	
-	joynow  |  四月 3rd, 2005 at 8:33 pm
-
-			我也要试用,还有吗?
+我也要试用,还有吗?
 
 joynow
 
 [mailto:joynow@163.com](joynow@163.com)
 
-		
+62.
 
-	
 
-	
-	62.
+chenjin  |  四月 3rd, 2005 at 8:39 pm
 
-	
-	chenjin  |  四月 3rd, 2005 at 8:39 pm
-
-			我也想要一个，谢谢。
+我也想要一个，谢谢。
 
 [mailto:chenjin09@gmail.com](chenjin09@gmail.com)
 
-		
+63.
 
-	
 
-	
-	63.
+cycxf  |  四月 3rd, 2005 at 8:39 pm
 
-	
-	cycxf  |  四月 3rd, 2005 at 8:39 pm
+[mailto:cycxf@263.net](cycxf@263.net)
 
-			[mailto:cycxf@263.net](cycxf@263.net)
+64.
 
-		
 
-	
+horse)  |  四月 3rd, 2005 at 9:13 pm
 
-	
-	64.
+均已发出，查收
 
-	
-	horse)  |  四月 3rd, 2005 at 9:13 pm
+65.
 
-			均已发出，查收
 
-		
+frankel  |  四月 3rd, 2005 at 9:28 pm
 
-	
-
-	
-	65.
-
-	
-	frankel  |  四月 3rd, 2005 at 9:28 pm
-
-			我想要一个邀请，谢谢
+我想要一个邀请，谢谢
 
 [mailto:mchl815@yahoo.com.cn](mchl815@yahoo.com.cn)
 
-		
+66.
 
-	
 
-	
-	66.
+Jimmy  |  四月 3rd, 2005 at 10:54 pm
 
-	
-	Jimmy  |  四月 3rd, 2005 at 10:54 pm
+我也凑个热闹，给我一个吧，多谢！
 
-			我也凑个热闹，给我一个吧，多谢！
+67.
 
-		
 
-	
+Antonis)  |  四月 4th, 2005 at 12:38 am
 
-	
-	67.
+我也要一个吧，谢谢啦:}
 
-	
-	Antonis)  |  四月 4th, 2005 at 12:38 am
+antonis_cn AT hotmail DOT com
 
-			我也要一个吧，谢谢啦:}
+68.
 
-	antonis_cn AT hotmail DOT com
 
-		
+geneboy)  |  四月 4th, 2005 at 8:36 am
 
-	
-
-	
-	68.
-
-	
-	geneboy)  |  四月 4th, 2005 at 8:36 am
-
-			体验一下,谢谢你!
+体验一下,谢谢你!
 
 我的gmail: geneboy
 
-		
+69.
 
-	
 
-	
-	69.
+Ginger  |  四月 4th, 2005 at 9:11 am
 
-	
-	Ginger  |  四月 4th, 2005 at 9:11 am
-
-			[mailto:leiqian520@yahoo.com.cn](leiqian520@yahoo.com.cn)
+[mailto:leiqian520@yahoo.com.cn](leiqian520@yahoo.com.cn)
 
 辛苦了：）
 
-		
+70.
 
-	
 
-	
-	70.
+Eric)  |  四月 4th, 2005 at 9:13 am
 
-	
-	Eric)  |  四月 4th, 2005 at 9:13 am
-
-			我也去试试。
+我也去试试。
 
 [mailto:sailingcelery@yahoo.com.cn](sailingcelery@yahoo.com.cn)
 
-		
+71.
 
-	
 
-	
-	71.
+hklouie  |  四月 4th, 2005 at 9:23 am
 
-	
-	hklouie  |  四月 4th, 2005 at 9:23 am
-
-			我也想体验一下360，可以给我一个吗？谢谢
+我也想体验一下360，可以给我一个吗？谢谢
 
 EMAIL：hklouie@yahoo.com
 
-		
+72.
 
-	
 
-	
-	72.
+Efox  |  四月 4th, 2005 at 11:20 am
 
-	
-	Efox  |  四月 4th, 2005 at 11:20 am
+给一个名额试试.
 
-			给一个名额试试.
+73.
 
-		
 
-	
+Efox  |  四月 4th, 2005 at 11:21 am
 
-	
-	73.
+给一个试试;efox_yang@yahoo.com.cn
 
-	
-	Efox  |  四月 4th, 2005 at 11:21 am
+74.
 
-			给一个试试;efox_yang@yahoo.com.cn
 
-		
+swei  |  四月 4th, 2005 at 11:25 am
 
-	
+haha , 谢过！
 
-	
-	74.
+75.
 
-	
-	swei  |  四月 4th, 2005 at 11:25 am
 
-			haha , 谢过！
+swei  |  四月 4th, 2005 at 11:25 am
 
-		
+哈哈，谢过，sweicool@gmail.com
 
-	
+76.
 
-	
-	75.
 
-	
-	swei  |  四月 4th, 2005 at 11:25 am
+Francis  |  四月 4th, 2005 at 11:39 am
 
-			哈哈，谢过，sweicool@gmail.com
+先谢谢大大了. [mailto:apple.blog@gmail.com](apple.blog@gmail.com)
 
-		
+77.
 
-	
 
-	
-	76.
+SpiderMan  |  四月 4th, 2005 at 12:14 pm
 
-	
-	Francis  |  四月 4th, 2005 at 11:39 am
+Thanks.
 
-			先谢谢大大了. [mailto:apple.blog@gmail.com](apple.blog@gmail.com)
+[mailto:xalee@163.com](xalee@163.com)
 
-		
+78.
 
-	
 
-	
-	77.
+aven  |  四月 4th, 2005 at 1:35 pm
 
-	
-	SpiderMan  |  四月 4th, 2005 at 12:14 pm
-
-			Thanks.
-
-	[mailto:xalee@163.com](xalee@163.com)
-
-		
-
-	
-
-	
-	78.
-
-	
-	aven  |  四月 4th, 2005 at 1:35 pm
-
-			谢谢，我想体验yahoo360！请house给一个试试
+谢谢，我想体验yahoo360！请house给一个试试
 
 [mailto:aven.xuan@gmail.com](aven.xuan@gmail.com)
 
-		
+79.
 
-	
 
-	
-	79.
+Julian  |  四月 4th, 2005 at 2:05 pm
 
-	
-	Julian  |  四月 4th, 2005 at 2:05 pm
+请给一个邀请，谢谢
 
-			请给一个邀请，谢谢
+[mailto:julian2004@gmail.com](julian2004@gmail.com)
 
-	[mailto:julian2004@gmail.com](julian2004@gmail.com)
+80.
 
-		
 
-	
+guyama)  |  四月 4th, 2005 at 4:39 pm
 
-	
-	80.
+[mailto:yoyofans@hotmail.com](yoyofans@hotmail.com)
 
-	
-	guyama)  |  四月 4th, 2005 at 4:39 pm
+谢谢哦！
 
-			[mailto:yoyofans@hotmail.com](yoyofans@hotmail.com)
+81.
 
-	谢谢哦！
 
-		
+pete  |  四月 4th, 2005 at 6:25 pm
 
-	
-
-	
-	81.
-
-	
-	pete  |  四月 4th, 2005 at 6:25 pm
-
-			[mailto:p4135ve@gmail.com](p4135ve@gmail.com)
+[mailto:p4135ve@gmail.com](p4135ve@gmail.com)
 
 谢谢，看了介绍觉得应该会比MSN Spaces感觉好，想试试。
 
-		
+82.
 
-	
 
-	
-	82.
+pete  |  四月 4th, 2005 at 6:30 pm
 
-	
-	pete  |  四月 4th, 2005 at 6:30 pm
-
-			[mailto:p4135ve@gmail.com](p4135ve@gmail.com)
+[mailto:p4135ve@gmail.com](p4135ve@gmail.com)
 
 谢谢，看了介绍觉得应该会比MSN Spaces感觉好，想试试。
 
-		
+83.
 
-	
 
-	
-	83.
+horse)  |  四月 4th, 2005 at 7:52 pm
 
-	
-	horse)  |  四月 4th, 2005 at 7:52 pm
+yahoo更偏向sns一些，msn space还是比较blog
 
-			yahoo更偏向sns一些，msn space还是比较blog
+84.
 
-		
 
-	
+brick)  |  四月 5th, 2005 at 2:54 am
 
-	
-	84.
+那yahoo的这个是不是和微软那个wallop有点像哈
 
-	
-	brick)  |  四月 5th, 2005 at 2:54 am
+85.
 
-			那yahoo的这个是不是和微软那个wallop有点像哈
 
-		
+horse)  |  四月 5th, 2005 at 6:52 am
 
-	
+好像有点诶…不过简洁多了..
 
-	
-	85.
+86.
 
-	
-	horse)  |  四月 5th, 2005 at 6:52 am
 
-			好像有点诶…不过简洁多了..
+牛吃草)  |  四月 5th, 2005 at 8:35 am
 
-		
+不知道现在还有吗?经常浏览你的blog,这一次终于给你留言了,呵呵.以后多多交流,俺也在北京.
 
-	
+87.
 
-	
-	86.
 
-	
-	牛吃草)  |  四月 5th, 2005 at 8:35 am
+junlix  |  四月 5th, 2005 at 8:57 am
 
-			不知道现在还有吗?经常浏览你的blog,这一次终于给你留言了,呵呵.以后多多交流,俺也在北京.
+[mailto:congmang@hotmail.com](congmang@hotmail.com)
 
-		
+麻烦了啊！
 
-	
+88.
 
-	
-	87.
 
-	
-	junlix  |  四月 5th, 2005 at 8:57 am
+franciz)  |  四月 5th, 2005 at 12:52 pm
 
-			[mailto:congmang@hotmail.com](congmang@hotmail.com)
+请您给我一个邀请，谢谢。
 
-	麻烦了啊！
+[mailto:francizli@homail.com](francizli@homail.com)
 
-		
+89.
 
-	
 
-	
-	88.
+vividyu  |  四月 5th, 2005 at 4:19 pm
 
-	
-	franciz)  |  四月 5th, 2005 at 12:52 pm
+多谢，vividyu@hotmail.com
 
-			请您给我一个邀请，谢谢。
+90.
 
-	[mailto:francizli@homail.com](francizli@homail.com)
 
-		
+kdekid  |  四月 5th, 2005 at 10:06 pm
 
-	
+[mailto:kdekid@gmail.com](kdekid@gmail.com)
 
-	
-	89.
+would you please gimme an invitation if available? Thank you.
 
-	
-	vividyu  |  四月 5th, 2005 at 4:19 pm
+91.
 
-			多谢，vividyu@hotmail.com
 
-		
+Alan  |  四月 6th, 2005 at 8:13 am
 
-	
+thanks
 
-	
-	90.
+92.
 
-	
-	kdekid  |  四月 5th, 2005 at 10:06 pm
 
-			[mailto:kdekid@gmail.com](kdekid@gmail.com)
+rob  |  四月 6th, 2005 at 10:55 pm
 
-	would you please gimme an invitation if available? Thank you.
-
-		
-
-	
-
-	
-	91.
-
-	
-	Alan  |  四月 6th, 2005 at 8:13 am
-
-			thanks
-
-		
-
-	
-
-	
-	92.
-
-	
-	rob  |  四月 6th, 2005 at 10:55 pm
-
-			thanks!
+thanks!
 
 my email:robertb9527@gmail.com
 
-		
+93.
 
-	
 
-	
-	93.
+reckie  |  四月 6th, 2005 at 11:42 pm
 
-	
-	reckie  |  四月 6th, 2005 at 11:42 pm
-
-			还有吗?
+还有吗?
 
 给俺一个,多谢
 
-		
+94.
 
-	
 
-	
-	94.
+redwolf  |  四月 7th, 2005 at 11:23 am
 
-	
-	redwolf  |  四月 7th, 2005 at 11:23 am
-
-			3x
+3x
 
 [mailto:now_chen@hotmail.com](now_chen@hotmail.com)
 
-		
+95.
 
-	
 
-	
-	95.
+daxin  |  四月 8th, 2005 at 10:23 am
 
-	
-	daxin  |  四月 8th, 2005 at 10:23 am
-
-			me, thanks
+me, thanks
 
 [mailto:daxin@myway.com](daxin@myway.com)
 
-		
+96.
 
-	
 
-	
-	96.
+Runda Liu  |  四月 9th, 2005 at 8:10 pm
 
-	
-	Runda Liu  |  四月 9th, 2005 at 8:10 pm
+要是有，就麻烦你给我一个！
 
-			要是有，就麻烦你给我一个！
+97.
 
-		
 
-	
+排队等候，我还有希望吗？  |  四月 9th, 2005 at 8:12 pm
 
-	
-	97.
+排队等候，我还有希望吗？给啊一个了cnieyou@yahoo.com.cn
 
-	
-	排队等候，我还有希望吗？  |  四月 9th, 2005 at 8:12 pm
+98.
 
-			排队等候，我还有希望吗？给啊一个了cnieyou@yahoo.com.cn
 
-		
+jay)  |  四月 9th, 2005 at 10:14 pm
 
-	
+如果这里没有了，可以去我那。∶）
 
-	
-	98.
+99.
 
-	
-	jay)  |  四月 9th, 2005 at 10:14 pm
 
-			如果这里没有了，可以去我那。∶）
+reckie  |  四月 11th, 2005 at 10:47 am
 
-		
+谢谢horse，我的邀请已收到。THX！
 
-	
+100.
 
-	
-	99.
 
-	
-	reckie  |  四月 11th, 2005 at 10:47 am
+beitiaosi  |  四月 11th, 2005 at 2:32 pm
 
-			谢谢horse，我的邀请已收到。THX！
+还有没有，给偶来一个.TKS
 
-		
+[mailto:beitiaosi88@yahoo.com.cn](beitiaosi88@yahoo.com.cn)
 
-	
+101.
 
-	
-	100.
 
-	
-	beitiaosi  |  四月 11th, 2005 at 2:32 pm
+wang  |  四月 25th, 2005 at 3:43 pm
 
-			还有没有，给偶来一个.TKS
+请给我一个wallop邀请
 
-	[mailto:beitiaosi88@yahoo.com.cn](beitiaosi88@yahoo.com.cn)
+多谢
 
-		
+[mailto:empireghost@hotmail.com](empireghost@hotmail.com)
 
-	
+102.
 
-	
-	101.
 
-	
-	wang  |  四月 25th, 2005 at 3:43 pm
+horse)  |  四月 25th, 2005 at 4:01 pm
 
-			请给我一个wallop邀请
+sorry，我没有wallop的邀请
 
-	多谢
+103.
 
-	[mailto:empireghost@hotmail.com](empireghost@hotmail.com)
 
-		
+xjq284  |  七月 21st, 2005 at 3:28 am
 
-	
+got it
 
-	
-	102.
+104.
 
-	
-	horse)  |  四月 25th, 2005 at 4:01 pm
 
-			sorry，我没有wallop的邀请
+张  |  八月 1st, 2005 at 4:10 pm
 
-		
+[mailto:chinazhangyougang@yahoo.com.cn](chinazhangyougang@yahoo.com.cn)
 
-	
+105.
 
-	
-	103.
 
-	
-	xjq284  |  七月 21st, 2005 at 3:28 am
+horse)  |  八月 2nd, 2005 at 2:58 pm
 
-			got it
+现在已经可以自由申请。
 
-		
+106.
 
-	
 
-	
-	104.
+xl  |  十一月 21st, 2005 at 6:30 pm
 
-	
-	张  |  八月 1st, 2005 at 4:10 pm
+看看是什么样子;要个吧
 
-			[mailto:chinazhangyougang@yahoo.com.cn](chinazhangyougang@yahoo.com.cn)
+[mailto:xulef@yahoo.com](xulef@yahoo.com)
 
-		
+Leave a Comment
 
-	
+Name Required
 
-	
-	105.
+Email Required, hidden
 
-	
-	horse)  |  八月 2nd, 2005 at 2:58 pm
+Url 
 
-			现在已经可以自由申请。
+Comment 
 
-		
+Some HTML allowed:
 
-	
 
-	
-	106.
+ |  Subscribe to the comments via RSS Feed)
 
-	
-	xl  |  十一月 21st, 2005 at 6:30 pm
-
-			看看是什么样子;要个吧
-
-	[mailto:xulef@yahoo.com](xulef@yahoo.com)
-
-		
-
-	
-
-	Leave a Comment
-
-	
-	
-		
-
-	
-			Name  Required
-
-			Email  Required, hidden
-
-			Url 
-
-			Comment 
-
-			
-			
-
-	  	
-		
-
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	[http://blog.zhanbin.com/index.php/20.html/trackback/](Trackback this post)  |  Subscribe to the comments via RSS Feed)
-
- 
- 
-
-		
-		
-
-[http://blog.zhanbin.com/index.php/89.html](大小白)
 本故事纯属虚构，切勿对号入座
-[http://www.feedsky.com/feed/daxiaobai](故事的rss)
-
-[http://www.zhanbin.com/index.php/first/](第一次来本站？)
 
 信息台
-[http://ofblog.com/wzp](
-最佳财经观察Blog)
 
-[http://ofblog.com/wzp/](王正鹏·财经夜谭)
+订阅 [)
 
-[http://blogbeta.com](BlogBeta：高质量群组blog支持计划)
-
-订阅 [http://feeds.feedburner.com/zhanbin]()
-
-[http://www.bloglines.com/sub/http://feeds.feedburner.com/zhanbin](Bloglines订阅)
-
-[http://www.newsgator.com/ngs/subscriber/subext.aspx?url=http://feeds.feedburner.com/zhanbin](Newsgator订阅)
-
-[http://my.msn.com/addtomymsn.armx?id=rss&ut=http://feeds.feedburner.com/zhanbin](My Msn订阅)
-
-[http://add.my.yahoo.com/rss?url=http://feeds.feedburner.com/zhanbin](My Yahoo订阅)
-
-[http://www.rojo.com/add-subscription?resource=http://feeds.feedburner.com/zhanbin](
-Rojo订阅)
-
-[http://www.gougou.com/sub/http://feeds.feedburner.com/zhanbin](gougou订阅)
-
-[http://www.potu.com/sub/http://feeds.feedburner.com/zhanbin](周博通订阅)
-
-[http://www.boyue.com/login_other0.asp?info_addr=http://feeds.feedburner.com/zhanbin](博阅订阅)
-[http://feeds.feedburner.com/zhanbin]()
-
-			
-			
+[)
 
 广告:
 
-			
+Most Recent Posts
 
-		
-		
+如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
+商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
 
-	Most Recent Posts
+© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
 
-	
-	[http://blog.zhanbin.com/index.php/99.html](中共中央举行座谈会纪念胡耀邦同志诞辰90周年)
-[http://blog.zhanbin.com/index.php/98.html](▲大白啊，出来混，很多事情，早晚都是要还的)
-[http://blog.zhanbin.com/index.php/97.html](▲小白揭发说大白记得十辈子的事情)
-[http://blog.zhanbin.com/index.php/95.html](请为环保记者刘鉴强投票)
-[http://blog.zhanbin.com/index.php/94.html](▲兔大白说：单恋也是受虐)
-[http://blog.zhanbin.com/index.php/93.html](▲被小女生欺负的小男生通常会爱上那个小女生)
-[http://blog.zhanbin.com/index.php/92.html](▲小白爱上归芸了)
-[http://blog.zhanbin.com/index.php/91.html](▲我的专栏是大白捉刀的)
-[http://blog.zhanbin.com/index.php/90.html](▲兔子为什么吃肉)
-[http://blog.zhanbin.com/index.php/88.html](▲龟儿子还是兔崽子)
-	
-
-[http://media.zhanbin.com](■ 广泛传播 ■ media blog)如果生产方式和阅读方式都改变了？报纸还能存在吗？)微内容及我对其的理解：结构化和人格化)网络传播专题讲座全部课程内容及课程小结)wikipedia与六度间隔的“语境问题”)技术以组织者的身份驱动Web2.0)网络传播专题讲座通知)网络传播专题讲座最新信息)postshow、blogbeta与ofblog——利用blog做更多的事情)中文网志年会web2.0演讲ppt下载)中文网志年会3日～4日人物印象记)
-[http://edu.zhanbin.com](■ 亦言亦行 ■ edu blog)商学院教育的思考与文摘)为学生得意)开放课程：网络传播专题讲座)与学生聊天记及其它杂感)讲课比赛小记)教师节)课程计划：网络传播专题讲座)感谢那些关心教育事业的人们及其它)传播学课程总结)两小时＋咖啡豆 与 我曾经的idea)
-
- 
-
- 
-
-	© Copyright 2005 ■ 摩顶放踵 ■ personal blog. All rights reserved.
-
-	Design based on [http://www.kingcosmonaut.de/blix/](Blix) Theme by [http://z2studio.com](Z2studio). Powered by [http://www.wordpress.org/](WordPress) . [http://blog.zhanbin.com/wp-login.php](登录)
+Design based on Theme by . Powered by .

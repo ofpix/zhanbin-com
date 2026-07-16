@@ -6,41 +6,24 @@ categories: [教育]
 
 ■ 亦言亦行 ■ edu blog » opensource、e-learning和open education
 
-	
-
 ■ 亦言亦行 ■ edu blog
 首页    个人    传播    !教育    联系
 
-  
-    
-	 
-	 opensource、e-learning和open education
-    
+opensource、e-learning和open education
 
-	
-	Uncategorized
-	
+Uncategorized
 
-	         
-	
-      		在考虑open education的问题时，曾经有过多种尝试，利用一些cms系统来帮助我建站，最后在http://course.poseshow.com里面我使用了phparticle，结果发现这个系统效率并不好，至少我用起来，而且我一直也缺乏动力继续维系和补充内容，很是荒废。
+在考虑open education的问题时，曾经有过多种尝试，利用一些cms系统来帮助我建站，最后在
 
-	曾经在opensourceCMS上面看到过一些e-learning的CMS系统，当时试用的过程中最感兴趣的是Moodle，前阵子看到levelflight上对一系列CMS的评价，也是对Moodle很是认可。
+曾经在opensourceCMS上面看到过一些e-learning的CMS系统，当时试用的过程中最感兴趣的是Moodle，前阵子看到levelflight上对一系列CMS的评价，也是对Moodle很是认可。
 
-	但是我现在已经略为改变了以前的一些想法。事实上，在辅助教学方面，CMS或者是还是基于传统课堂的讲义构成的教学并不很利于现在的学生，而如何调动他们的积极性可能是更加重要的，所以我觉得bbs反而更加直接简单。另外以“课程”来进行“网络学习”也不是一个好主意，只有像MIT open courseware那样有很多课程才可能会有些价值，但是对于直接促进学习也很难说。所以，真正利用网络进行学习，那么blog会是合适的方式，只是应该拓展到“个人知识管理”的学习方式，而不是以“课程”为中心，所以应该是大学一个长时段的问题。
+但是我现在已经略为改变了以前的一些想法。事实上，在辅助教学方面，CMS或者是还是基于传统课堂的讲义构成的教学并不很利于现在的学生，而如何调动他们的积极性可能是更加重要的，所以我觉得bbs反而更加直接简单。另外以“课程”来进行“网络学习”也不是一个好主意，只有像MIT open courseware那样有很多课程才可能会有些价值，但是对于直接促进学习也很难说。所以，真正利用网络进行学习，那么blog会是合适的方式，只是应该拓展到“个人知识管理”的学习方式，而不是以“课程”为中心，所以应该是大学一个长时段的问题。
 
-	此外，还在尝试利用blog辅助推进“项目制的团队协作研究型学习”，似乎有机会blog发挥作用。
+此外，还在尝试利用blog辅助推进“项目制的团队协作研究型学习”，似乎有机会blog发挥作用。
 
-	但是这些已经和open education以及e-learning这些概念分道行走，对于这两个东西，我还颇为犹疑，不知道怎么应用到我的教学实践中来。
+但是这些已经和open education以及e-learning这些概念分道行走，对于这两个东西，我还颇为犹疑，不知道怎么应用到我的教学实践中来。
 
-    
-    
-    
-    
-      by horse in Uncategorized on 05.12.05 @ 10:28 pm | 
-    
-
-  
+by horse in Uncategorized on 05.12.05 @ 10:28 pm | 
 
 随机显示文章
 
@@ -48,58 +31,23 @@ categories: [教育]
 
 无留言 so far
 
- 
+
 Leave a comment
 
 订阅此文章的留言RSS。 
-	TrackBack URI
+TrackBack URI
 
 写留言
 
-自动分行和段，email也不会显示出来，允许的HTML标签： <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
+自动分行和段，email也不会显示出来，允许的HTML标签： 
 
-	
-	  
-	   名字 （必须）	
-	
-	
+名字 （必须）	
 
-	
-	  
-	   E-mail （必须）	
+E-mail （必须）	
 
-	
-	  
-	   URI
-	
+URI
 
-	
-	  你的留言
-	
-
-	  
-	
-
-	
-	  
-	
-
-	
-
- 
- 
-
-    
-
-  
- 
- 
-
-  
-  
-  
-
-  
+你的留言
 
 第一次来本站？
 
@@ -109,26 +57,24 @@ BlogBeta：高质量群组blog支持计划
 
 Categories
 
-	All
-	Uncategorized
+All
+Uncategorized
 
 Archives
 
 Archives by Month
-	 九月 2005 
-	 七月 2005 
-	 五月 2005 
-	 四月 2005 
-	 三月 2005 
-	 二月 2005 
-	 九月 2004 
-
-  
+九月 2005 
+七月 2005 
+五月 2005 
+四月 2005 
+三月 2005 
+二月 2005 
+九月 2004 
 
 Search
 
-  
-    pose中文开放课程
+
+pose中文开放课程
 
 pose课程辅助讨论区
 
@@ -177,28 +123,18 @@ zheng
 
 韦钰
 
- 
-
 syndicate
 订阅本站
 
 Syndicate this site
 
-   
-
-  
-
 recent comments
 ^^: 仔细看了上面的东西，别的地...^^: 在大学能遇到这样子的老师真...数据被神话网络弄没了 » “网络传播专题讲座：正在变化中的互联网”课程计划: [...] 其要感谢那些可能来讲授...数据被神话网络弄没了 » Hello world!: [...] 
- 			
- 				Hello world!
- 				九月...MeetRain: 好久不来老师这里了，刚才和...
 
-  
-    
+Hello world!
+九月...MeetRain: 好久不来老师这里了，刚才和...
 
-    
-    Except noted, this site is licensed under a Creative Commons License
-  
+Except noted, this site is licensed under a Creative Commons License
+
 
 Powered by wordpress. Theme based on MinimaPlus

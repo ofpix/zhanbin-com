@@ -5,7 +5,6 @@ categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_35"
 ---
 
-
 ■ 摩顶放踵 ■ personal blog » 人去楼空
 ■ 摩顶放踵 ■ personal blog
 首页    !个人    传播    教育    联系
@@ -33,7 +32,7 @@ By liuyuefly on 05.14.05 10:07 am
 订阅此文章的留言RSS。
 TrackBack URI
 写留言
-自动分行和段，email也不会显示出来，允许的HTML标签： <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong>
+自动分行和段，email也不会显示出来，允许的HTML标签： 
 名字 （必须）
 E-mail （必须）
 URI
@@ -42,7 +41,7 @@ function StorePage()
 {
 d=document;
 t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
-void(keyit=window.open('http://web.archive.org/web/20050817061032/http://www.365key.com/storeit.aspx?t='+escape(d.title)+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
+void(keyit=window.open(')+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
 keyit.focus();
 }
 加“摩顶放踵”到收藏夹

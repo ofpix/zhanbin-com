@@ -1,10 +1,9 @@
 ---
-title: "■ 詹膑 ■ Homepage » A Magazine：“建造新世界”"
+title: "A Magazine：“建造新世界”"
 date: 2005-12-24 12:00:00 +0800
 categories: [tag]
 source: "https://web.archive.org/web/20081205020636/http://blog.zhanbin.com/zhanbin_28"
 ---
-
 
 ■ 詹膑 ■ Homepage » A Magazine：“建造新世界”
 ■ 詹膑 ■ Homepage摩顶放踵，养浩然气
