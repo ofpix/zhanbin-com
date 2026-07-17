@@ -6,7 +6,9 @@ categories: [随便说说]
 -->  Yahoo!新搜索对Rss的强化支持与Yahoo新推Podcasts搜索
 
 	Blogspot解封，Weblogs Inc.推出两个简体中文blog
+
 	十月 11, 2005 on 8:11 pm | In 随便说说 | 
+
 	Blogger是个写作工具，其官方托管站点是blogspot.com，一直被GFW在大家视线之外，如今解封了，有人说李开复真是伟大……但是blogspot上确实有非常多的优秀站点，希望blogs.com和blogsome等也能解封。
 
 	Engadget中文版正式发布，除了engadget与此同时发布的还有Autoblog。
@@ -15,6 +17,7 @@ categories: [随便说说]
 
 
 随机推荐文章：
+
 新旧web人与事：分类广告站、社区、地域性网站“坏消息”和“好消息”组成的拟态现实（上）看一本杂志看什么？Adobe收购Macromediapaypal中国版本上线
 
 6 留言 
@@ -77,7 +80,9 @@ XHTML: <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote c
 
 
 新闻台
+
 生活真无趣，我要看小说：
+
 大小白系列（原创连载）
 
 王正鹏·财经夜谭◇. 中国应给日本新干线留一点余地，以作为制衡欧洲技术的筹码◇. 中国没把日本高铁全封死，京沪线是战略筹码仍有余地◇. 借着小布什在中国留下的话，美国高通跳出的调门很高◇. 将300公里高铁技术转让中国，德国人的战略眼光你不得不尊敬◇. 布什带着威尔逊主义来到中国，中美明年最大经济战将是知识产权
@@ -99,8 +104,9 @@ XHTML: <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote c
 » 如果生产方式和阅读方式都改变了？报纸还能存在吗？» 微内容及我对其的理解：结构化和人格化» 网络传播专题讲座全部课程内容及课程小结» wikipedia与六度间隔的“语境问题”» 技术以组织者的身份驱动Web2.0» 网络传播专题讲座通知» 网络传播专题讲座最新信息» postshow、blogbeta与ofblog——利用blog做更多的事情» 中文网志年会web2.0演讲ppt下载» 中文网志年会3日～4日人物印象记» 关于年会演讲的ppt» 美国杂志编辑学会评选出40年最佳封面杂志» 存照，正视听» 搜索引擎功能大比拼» 讲座：web标准与用户体验» 我承认，我很郁闷，并渴望诅咒» 评globehr新版：职业搜索也要社会性» 精英写blog＝精英落草» 统计数据：Technorati描述的blogosphere» 
 
 o...» horse: >>什么样的杂志才算得上是...» MeetRain: 直言不讳：
+
 就觉得吕欣欣和郝...» MeetRain: 老师：
+
 我想先问您几个问题，...» bruce: 新浪：新的浪费
 
 目前门户与传...» skyun: 最近和同学闲聊，他说他在QQ上...» skyun: 呵呵，王正鹏先生是有立场的...» keso: 昨日新闻 - 中文网站的Frame文化...
-

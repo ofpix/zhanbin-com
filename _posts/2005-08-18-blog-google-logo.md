@@ -3,9 +3,10 @@ title: "google logo"
 date: 2005-08-18 12:00:00 +0800
 categories: [博客]
 ---
-
 ■ 摩顶放踵 ■ personal blog » google logo
+
 ■ 摩顶放踵 ■ personal blog
+
 首页    !个人    传播    教育    联系
 
 	 google logo
@@ -23,11 +24,17 @@ poseshow来龙去脉以及现状家乡图记4：家乡饭二十岁的kettle with
 	  你的留言
 
 function StorePage()
+
 {
+
         d=document;
+
         t=d.selection?(d.selection.type!='None'?d.selection.createRange().text:''):(d.getSelection?d.getSelection():'');
+
         void(keyit=window.open('http://www.365key.com/storeit.aspx?t='+escape(d.title)+'&u='+escape(d.location.href)+'&c='+escape(t),'keyit','scrollbars=no,width=475,height=575,left=75,top=20,status=no,resizable=yes'));
+
         keyit.focus();
+
 }
 
 加“摩顶放踵”到收藏夹
@@ -43,18 +50,28 @@ BlogBeta：高质量群组blog支持计划
 Categories
 
 	All
+
 	Uncategorized
 
 
 Archives by Month
+
 	 八月 2005 
+
 	 七月 2005 
+
 	 六月 2005 
+
 	 五月 2005 
+
 	 四月 2005 
+
 	 三月 2005 
+
 	 二月 2005 
+
 	 十一月 2004 
+
 	 八月 2004 
 
 Search

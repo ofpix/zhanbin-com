@@ -4,7 +4,9 @@ date: 2005-10-18 12:00:00 +0800
 categories: [随便说说]
 ---
 Google和Apple的newsletter
+
 	五月 17, 2005 on 10:27 am | In 随便说说 | 
+
 	今天早上发现邮箱里同时出现了google和apple的newsletter，其中google的名为“Google Friends Newsletter”， 从上面的列表里你会发现上一期的newsletter已经很遥远了，是2004年3月份的，google说以后会每月邮寄：
 
 Each month from now on you’ll see an insider’s roundup of Google tips, insights into our products, plus stuff that inspires us.
@@ -25,9 +27,11 @@ Each month from now on you’ll see an insider’s roundup of Google tips, insig
 
 
 随机推荐文章：
+
 评globehr新版：职业搜索也要社会性日常vs梦境：电视与电影的区别（web2.02）web2.0沙龙后记与随想Google用blog公关中国未来搜索引擎功能大比拼
 
 No Comments yet 
+
 	»
 
 
@@ -43,7 +47,9 @@ XHTML: <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote c
 
 
 新闻台
+
 生活真无趣，我要看小说：
+
 大小白系列（原创连载）
 
 王正鹏·财经夜谭◇. 呼应大西南石油通道战略,中国可用缅甸抗衡马六甲石油地位◇. 中国应给日本新干线留一点余地，以作为制衡欧洲技术的筹码◇. 中国没把日本高铁全封死，京沪线是战略筹码仍有余地◇. 借着小布什在中国留下的话，美国高通跳出的调门很高◇. 将300公里高铁技术转让中国，德国人的战略眼光你不得不尊敬
@@ -65,8 +71,9 @@ XHTML: <a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote c
 » 如果生产方式和阅读方式都改变了？报纸还能存在吗？» 微内容及我对其的理解：结构化和人格化» 网络传播专题讲座全部课程内容及课程小结» wikipedia与六度间隔的“语境问题”» 技术以组织者的身份驱动Web2.0» 网络传播专题讲座通知» 网络传播专题讲座最新信息» postshow、blogbeta与ofblog——利用blog做更多的事情» 中文网志年会web2.0演讲ppt下载» 中文网志年会3日～4日人物印象记» 关于年会演讲的ppt» 美国杂志编辑学会评选出40年最佳封面杂志» 存照，正视听» 搜索引擎功能大比拼» 讲座：web标准与用户体验» 我承认，我很郁闷，并渴望诅咒» 评globehr新版：职业搜索也要社会性» 精英写blog＝精英落草» 统计数据：Technorati描述的blogosphere» 
 
 o...» horse: >>什么样的杂志才算得上是...» MeetRain: 直言不讳：
+
 就觉得吕欣欣和郝...» MeetRain: 老师：
+
 我想先问您几个问题，...» bruce: 新浪：新的浪费
 
 目前门户与传...
-
