@@ -44,9 +44,7 @@ December 16, 2005
 
 
 RSS feed for comments on this post. 
-	TrackBack URI
 
-Leave a comment
 
 Name (required)
 
@@ -74,9 +72,7 @@ About Me：
 学习 | 思考 | 意见 | 分享
 互联网 | 传媒 | 营销、公关 | 艺术、人文 | 教育
 
-最新文章：
 + 咖啡馆征名+ 网人：从上网到织网+ 庆祝地铁5号线开通，新地铁票制票价很不错+ 国际聋人节，DeafChina.com正式上线+ 9月29日，ofblog学习沙龙：网人+ 书籍提供经过整理和沉淀的信息+ 报纸死亡了吗？——王主任小解+ ofblog沙龙小记与我们想要做什么+ iPod是个特殊产品类别，流行得益于iTunes+ 这两日无法访问的原因
-最新评论与留言：
  boulder colorado mazda: boulder colorado mazda...
 
 news..... 星云: 加一口 咖... Tangos: 开始搞了啊:)
@@ -183,6 +179,4 @@ zheng·刻事录
 余建军·city8
 
 
-O..F..Blog最新文章 [郑治] 新技术的冲击是什么？ [李雪琴] 中国报业离艺术化生产还有多远？由此向北1500米 [王正鹏] OFblog第N次沙龙记:从报纸的死亡到艺术化生产 [吴青松] ofblog沙龙：从“报纸死亡了吗”到“艺术化生产” [王正鹏] 报纸副刊的复活，《华盛顿邮报》的答卷 [郑治] 边缘视角 - 当Web2.0瓦解了洗脑文化之后(刘松) [王正鹏] 《金融时报》是《第一财经》的镜子，为什么要把财经类情报给互联网呢？ [郑治] IT业的我能、我不能 [郑治] 项立刚描绘手机媒体情景 [郑治] 边缘视角 - 百度即将发布百度TV
 
-Copyright © 2005~2006 詹膑. Powered by WordPress.  ^Top^

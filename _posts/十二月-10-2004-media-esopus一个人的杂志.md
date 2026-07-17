@@ -3,16 +3,7 @@ title: "ESOPUS：一个人的杂志"
 date: 十二月-10-2004 12:00:00 +0800
 categories: [传媒]
 ---
-
-广泛传播日报
-文章档案
-
-
-		ESOPUS：一个人的杂志
-
-		   		十二月 10th, 2004
-
-			第一财经日报曾经有过这样一个报道：《一个人的杂志》，是介绍ESOPUS的：
+第一财经日报曾经有过这样一个报道：《一个人的杂志》，是介绍ESOPUS的：
 
 
 	“我只根据自己的喜好来做这本杂志，它不被其他任何东西局限或束缚。”托得认为他要做的是一本兴趣广泛的杂志，这个杂志表达自己的观点，不随波逐流。
@@ -25,60 +16,38 @@ categories: [传媒]
 
 	独立杂志因为年轻人而变得有各种可能性，而他们在视觉和内容以及形式上的创新也往往让人诧异。我们因为有很多的限制，所以想要出印刷本的独立杂志或者个人杂志很不容易，但是网络降低了门槛，提供了可能性——“自媒时代”：风格派独立网刊日渐成型。
 
-		Entry Filed under: 杂志
-
-
-	Leave a Comment
-
-
-			Name  Required
-
-			Email  Required, hidden
-
-			Url 
-
-			Comment 
 
 
 
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	Trackback this post  |  Subscribe to the comments via RSS Feed
 
 
 
-第一次来本站？
 
-信息台
+
+
+
+
+
+
+
+
 王正鹏·财经夜谭
 最佳财经评论Blog
 
 Rss加油站
-BlogBeta：高质量群组blog支持计划
-
-Bloglines
-
-Newsgator
-
-My Msn
-
-My Yahoo
-
-Rojo
-
-gougou
-
-周博通
-
-博阅
-
-
-广告:
 
 
 
-	Most Recent Posts
+
+
+
+
+
+
+
+
+
+
 
 	美国杂志编辑学会评选出40年最佳封面杂志
 存照，正视听
@@ -90,10 +59,3 @@ gougou
 统计数据：Technorati描述的blogosphere
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
-■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education
-
-
-
-	© Copyright 2005 ■ 广泛传播 ■ media blog. All rights reserved.
-
-	Design based on Blix Theme by Z2studio. Powered by WordPress . 登录

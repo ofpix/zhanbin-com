@@ -3,16 +3,11 @@ title: "新旧web人与事：怀旧、Fanso、Chinaren、教育网"
 date: 七月-14-2005 12:00:00 +0800
 categories: [传媒]
 ---
+新旧web人与事：怀旧、Fanso、Chinaren、教育网
 
-广泛传播日报
-文章档案
+   		七月 14th, 2005
 
-
-		新旧web人与事：怀旧、Fanso、Chinaren、教育网
-
-		   		七月 14th, 2005
-
-			世界很小，而互联网让时代也缩短了，大概差不多就是5年一个轮回。
+世界很小，而互联网让时代也缩短了，大概差不多就是5年一个轮回。
 
 	昨日五道口T6火锅，人多热闹得很，来人包括卢亮、洪波、吕欣欣、邢勃、熊川、周鹏、张辉、陈志东、余波、孔铁山、鲁军和我。在web2.0的商业潮起时，作为旁观者感受颇多，而且昨天还算见到了旧人。
 
@@ -40,87 +35,58 @@ categories: [传媒]
 
 	当时我就很热血，看着热闹，心潮澎湃，但是有互联网创业机会时我都毫不犹豫地避开；今天我也是看着热闹，没有打算掺和。这样也满好玩，嚷嚷或者怀旧总是要容易得多。
 
-		Entry Filed under: 互联网
-
-
-	3 Comments Add your own
-
-
-	1.
-
-	与博阅在一起  |  七月 15th, 2005 at 10:25 am
-
-			原来你的幸福生活是来自Fanso，一种线上和线下结合的路子，值得推广。
 
 
 
-	2.
-
-	horse  |  七月 15th, 2005 at 11:31 am
-
-			呵呵，我们当时是异地……:(
 
 
 
-	3.
-
-	shunz  |  七月 15th, 2005 at 1:10 pm
-
-			都在怀念过去的网络生活啊。。。
+原来你的幸福生活是来自Fanso，一种线上和线下结合的路子，值得推广。
 
 
 
-	Leave a Comment
 
 
-			Name  Required
-
-			Email  Required, hidden
-
-			Url 
-
-			Comment 
+呵呵，我们当时是异地……:(
 
 
 
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	Trackback this post  |  Subscribe to the comments via RSS Feed
 
 
+都在怀念过去的网络生活啊。。。
 
-第一次来本站？
 
-信息台
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 王正鹏·财经夜谭
 最佳财经评论Blog
 
 Rss加油站
-BlogBeta：高质量群组blog支持计划
-
-Bloglines
-
-Newsgator
-
-My Msn
-
-My Yahoo
-
-Rojo
-
-gougou
-
-周博通
-
-博阅
-
-
-广告:
 
 
 
-	Most Recent Posts
+
+
+
+
+
+
+
+
+
+
 
 	存照，正视听
 搜索引擎功能大比拼
@@ -131,10 +97,3 @@ gougou
 统计数据：Technorati描述的blogosphere
 
 ■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
-■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education
-
-
-
-	© Copyright 2005 ■ 广泛传播 ■ media blog. All rights reserved.
-
-	Design based on Blix Theme by Z2studio. Powered by WordPress . 登录

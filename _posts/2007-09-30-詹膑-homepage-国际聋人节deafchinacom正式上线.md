@@ -24,8 +24,6 @@ Filed under: media, 互联网 — horse @ 4:42 pm
 谢谢詹老师.
 Comment by nicaio — October 1, 2007 @ 11:02 pm
 RSS feed for comments on this post.
-TrackBack URI
-Leave a comment
 Name (required)
 Mail (will not be published) (required)
 Website

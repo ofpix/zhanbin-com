@@ -3,16 +3,7 @@ title: "baidu的换logo是个糟糕透了的主意"
 date: 三月-29-2005 12:00:00 +0800
 categories: [传媒]
 ---
-
-广泛传播日报
-文章档案
-
-
-		baidu的换logo是个糟糕透了的主意
-
-		   		三月 29th, 2005
-
-			topku发来链接：百度新logo投票活动。这个页面第一句话说：“百度需要换个样子吗？大家一起来投票，您可以对百度现有标志和以下新标志进行投票，我们期待您的意见。”，但是提供的系列识别方案里面没有对现有logo方案的系列识别，因此算是无意中抑止了原来的logo，而让大家去从列出的3个项里选择...明显有引导的态度，这样做有些掩耳盗铃。
+topku发来链接：百度新logo投票活动。这个页面第一句话说：“百度需要换个样子吗？大家一起来投票，您可以对百度现有标志和以下新标志进行投票，我们期待您的意见。”，但是提供的系列识别方案里面没有对现有logo方案的系列识别，因此算是无意中抑止了原来的logo，而让大家去从列出的3个项里选择...明显有引导的态度，这样做有些掩耳盗铃。
 
 	显然原有的脚丫子logo是最漂亮的：，而新增设的三个logo乏善可陈，或者说糟糕至极。
 
@@ -30,140 +21,24 @@ categories: [传媒]
 
 	百度应该考虑的是如何利用现有识别进行更新，赋予新的内涵和时代特征，将其进行全面开发和管理而已。在我看来，这个是后更换一个全新的logo，纯属吓死人……这绝对是一个糟糕透了的主意。我正快要成为百度的拥趸时，积累的热情立刻被这一事件打散……
 
-		Entry Filed under: 随便说说
 
 
-	7 Comments Add your own
 
 
-	1.
 
-	TOPKU TOP CUE&hellip  |  四月 3rd, 2005 at 7:34 pm
 
-			愚人节后，偶回来了
+愚人节后，偶回来了
 
 	测试下，还是用回原来的MT版本先，再升级吧，因为直接用新的版本的话，遇到个比较麻烦的问题就是文章URL的问题，要保持原先文章UR0L的一致，转跳又太麻烦，而且恕我愚昧和LOWTECH。在此...
 
 
 
-	2.
 
-	googoz  |  四月 3rd, 2005 at 10:51 pm
 
-			发了了trackback过来为啥没显示呢？过来手工trackback一下，不太放心。
+发了了trackback过来为啥没显示呢？过来手工trackback一下，不太放心。
 
 
 
-	3.
 
-	horse  |  四月 3rd, 2005 at 11:09 pm
 
-			我也不知道啥问题...:( 好像很少trackback归来的。
-
-
-
-	4.
-
-	■ 广 泛 传 播 ■ m&hellip  |  四月 3rd, 2005 at 11:29 pm
-
-			[...] go是可以变得“理想”一些的。  有很多种声音，我还是坚持：baidu的换logo是个糟糕透了的主意。此外听说百度有在和一家不错的设计起家的 [...]
-
-
-
-	5.
-
-	lanlanye  |  四月 5th, 2005 at 3:59 pm
-
-			呵呵，我也觉得奇怪呢，百度原来的怎么没被加上呢？而且那三个明显就不如原来的。
-
-
-
-	6.
-
-	■ 广 泛 传 播 ■ m&hellip  |  四月 7th, 2005 at 7:33 am
-
-			[...] 的意见  [收藏此页365key]
-
-	       关于百度换logo，baidu的换logo是个糟糕透了的主意和百度logo新动向阐述了我的意见，今天一早 [...]
-
-
-
-	7.
-
-	未完成 - Incomplete &r&hellip  |  四月 10th, 2005 at 10:37 pm
-
-			[...] ice
-
-	 百度最近大肆宣传的换Logo行动，也引起了网民和中文blog圈的不  少  讨  论，没想到，最终的结果却是百度出人意料地宣布Logo不更换了， [...]
-
-
-
-	Leave a Comment
-
-
-			Name  Required
-
-			Email  Required, hidden
-
-			Url 
-
-			Comment 
-
-
-
-	Some HTML allowed:
-<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <code> <em> <i> <strike> <strong> 
-
-	Trackback this post  |  Subscribe to the comments via RSS Feed
-
-
-
-第一次来本站？
-
-信息台
-王正鹏·财经夜谭
-最佳财经评论Blog
-
-Rss加油站
-BlogBeta：高质量群组blog支持计划
-
-Bloglines
-
-Newsgator
-
-My Msn
-
-My Yahoo
-
-Rojo
-
-gougou
-
-周博通
-
-博阅
-
-
-广告:
-
-
-
-	Most Recent Posts
-
-	美国杂志编辑学会评选出40年最佳封面杂志
-存照，正视听
-搜索引擎功能大比拼
-讲座：web标准与用户体验
-我承认，我很郁闷，并渴望诅咒
-评globehr新版：职业搜索也要社会性
-精英写blog＝精英落草
-统计数据：Technorati描述的blogosphere
-
-■ 摩顶放踵 ■ personal blog精彩！精彩！朝阳市网站的精彩言战表姐表姐夫“逃生”，传销各地履禁不止汕头街头的三多or更多拜地主爷的潮汕风俗安全套、书店和鞋店买游击队的水果要小心推荐：选择个税起征点，贵在藏富于民《娱乐至上：体验经济时代的商业秀》Madagascar 马达加斯加 简评一个与“营销”有关的书单
-■ 亦言亦行 ■ edu blog为学生得意开放课程：网络传播专题讲座与学生聊天记及其它杂感讲课比赛小记教师节课程计划：网络传播专题讲座感谢那些关心教育事业的人们及其它传播学课程总结两小时＋咖啡豆 与 我曾经的ideaopensource、e-learning和open education
-
-
-
-	© Copyright 2005 ■ 广泛传播 ■ media blog. All rights reserved.
-
-	Design based on Blix Theme by Z2studio. Powered by WordPress . 登录
+我也不知道啥问题...:( 好像很少trackback归来的。

@@ -32,8 +32,6 @@ No Comments
 »
 No comments yet.
 RSS feed for comments on this post.
-TrackBack URI
-Leave a comment
 Name (required)
 Mail (will not be published) (required)
 Website
